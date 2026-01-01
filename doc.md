@@ -52,7 +52,7 @@ _Kính tặng Bác sĩ Joyeux. Người đã hết lòng nghĩ đến nhân đ�
 
 Một hôm, ông Đốc lý[^1] H. Virgitti đã đáp cho phái viên báo _La Pairie Annamite_[^2] trong một cuộc phỏng vấn về nạn hoa liễu:
 
-- Trong thành phố Hà Nội, ít ra cũng có năm nghìn gái sống về nghề mại dâm. Năm nghìn! Nhưng làm thế nào biết họ cho khắp mặt được, nhất là từ khi bị lôi cuốn vào cuộc biến hóa của phong tục cái đức hạnh người đàn bà An Nam xưa kia kiên cố biết bao, thì nay đã hóa ra quá đỗi mỏng manh!
+-- Trong thành phố Hà Nội, ít ra cũng có năm nghìn gái sống về nghề mại dâm. Năm nghìn! Nhưng làm thế nào biết họ cho khắp mặt được, nhất là từ khi bị lôi cuốn vào cuộc biến hóa của phong tục cái đức hạnh người đàn bà An Nam xưa kia kiên cố biết bao, thì nay đã hóa ra quá đỗi mỏng manh!
 
 Ấy đó là lời bình phẩm của một người Pháp, mà lại một người Pháp thượng lưu, mà lại một viên quan đầu tỉnh về cuộc "tiến bộ" của xã hội ta. Nói nôm na ra cho dễ hiểu, thế nghĩa là: Phụ nữ Việt Nam ngày nay hư hỏng quá lắm.
 
@@ -112,13 +112,13 @@ Khi tôi bước chân vào, phòng đợi lúc ấy đã đông khách. Hai ng�
 
 Cái sốt ruột, nếu có thể gọi nó là bệnh được, thì là một thứ bệnh hay lây. Người loong toong cũng đi dạo dưới hàng hiên như các khách khứa. Khi trông thấy một chiếc xe hơi tối tân kiểu thể thao sơn màu vàng nhạt từ từ tiến vào cái sân rộng ở phía dưới, người ấy vui mừng nói:
 
-- A! "Quan Chánh" ở bên quan Đốc lý về kia rồi!
+-- A! "Quan Chánh" ở bên quan Đốc lý về kia rồi!
 
 Tất cả mọi người đều thở dài sung sướng như vừa lúc trút đi được một gánh nặng. Cánh cửa xanh mở lại khép, khép lại mở. Người đầm quay lại phân bua với tôi:
 
-- Ông đến sau tôi, thì tôi phải vào trước ông!
+-- Ông đến sau tôi, thì tôi phải vào trước ông!
 
-- Cái đó dĩ nhiên, thưa bà.
+-- Cái đó dĩ nhiên, thưa bà.
 
 Rồi người đầm ấy được vào. Tôi nhìn đồng hồ ở tay tôi: 5 giờ 15 phút. Tôi lo lắng, phân vân... Chả mấy lúc nữa mà tan sở, liệu bác sĩ Joyeux sẽ tiếp tôi trong bao nhiêu lâu? Liệu tôi có thể có đủ thời giờ để mà yêu cầu cho được vào một nơi cấm mà nếu không là nhà thổ không là mật thám, không là thầy thuốc, thì không bao giờ ta được bước chân vào...?
 
@@ -132,31 +132,31 @@ Bên ngoài, những ông ký lục, khán hộ[^11] đã thay áo, rửa tay, l
 
 6 giờ kém 15, tôi cũng vẫn được gọi vào.
 
-- Thưa bác sĩ, tôi xin lỗi ngài về sự làm phiền nhiễu ngài như thế này...
+-- Thưa bác sĩ, tôi xin lỗi ngài về sự làm phiền nhiễu ngài như thế này...
 
-- Ô! Ô! Mời ông cứ ngồi chơi, tôi không phải sẵn mối ác cảm với báo giới.
+-- Ô! Ô! Mời ông cứ ngồi chơi, tôi không phải sẵn mối ác cảm với báo giới.
 
 Bác sĩ Joyeux giơ tay ra cho tôi một cách rất thân mật và trỏ cái ghế trước bàn giấy. Bác sĩ chưa già như tôi vẫn tưởng. Có thể nói: hãy còn trẻ măng. Với cặp kính trắng gọng đồi mồi ấy, với cái cằm có dấu vết râu xanh mà lưỡi dao cạo không để cho mọc ra được, nếu hai má đầy đặn hơn chút nữa thì bác sĩ Joyeux hao hao giống một tài tử của màn ảnh: Jim Gérald.
 
-- Thưa bác sĩ, trong tất cả những vấn đề gay go mà Chính phủ phải giải quyết cho nhân dân An Nam thì nạn mại dâm hiện giờ đương là một vấn đề hệ trọng... Lấy tư cách nhà ngôn luận, chúng tôi muốn được phép vào nhà lục xì để viết một thiên phóng sự, ngõ hầu quốc dân của chúng tôi được biết rằng nhà nước đối phó với nạn hoa liễu ra làm sao... Ông chủ nhiệm báo của chúng tôi là ông hội viên thành phố Hà văn Bính đã có gửi thư nhờ quan Đốc lý về việc ấy, mà bây giờ thì tôi đến yêu cầu ngài nghe tôi giãi bày tất cả những ý muốn của tôi để ngài bênh vực cho lời yêu cầu của chúng tôi đệ lên tòa Đốc lý...
+-- Thưa bác sĩ, trong tất cả những vấn đề gay go mà Chính phủ phải giải quyết cho nhân dân An Nam thì nạn mại dâm hiện giờ đương là một vấn đề hệ trọng... Lấy tư cách nhà ngôn luận, chúng tôi muốn được phép vào nhà lục xì để viết một thiên phóng sự, ngõ hầu quốc dân của chúng tôi được biết rằng nhà nước đối phó với nạn hoa liễu ra làm sao... Ông chủ nhiệm báo của chúng tôi là ông hội viên thành phố Hà văn Bính đã có gửi thư nhờ quan Đốc lý về việc ấy, mà bây giờ thì tôi đến yêu cầu ngài nghe tôi giãi bày tất cả những ý muốn của tôi để ngài bênh vực cho lời yêu cầu của chúng tôi đệ lên tòa Đốc lý...
 
 Bác sĩ Joyeux ngắt lời tôi:
 
-- Điều ấy ông Virgitti đã có nói cho tôi biết. Ông chủ nhiệm báo ông không những lấy tư cách nhà báo mà còn lấy cả tư cách dân biểu nữa. Đáng lẽ ra, Nhà nước có thể từ chối lời yêu cầu ấy một cách dễ dàng mà chẳng cần phải cắt nghĩa gì cả. Nhưng mà vào trường hợp này, vì lẽ thành phố vừa bỏ ra một số tiền to để sửa đổi phúc đường, nên để các ông vào thì cũng là ý kiến hay. Vả lại, trái hẳn với nhiều người Pháp vẫn nghĩ, tôi thì tôi cho rằng báo giới An Nam rất có thể đồng lao cộng tác với nhà nước trong mọi sự phải làm cho dân chúng, miễn rằng các nhà viết báo cáo ông không được cố ý nói sai sự thực để vu oan cho các nhà cầm quyền. Tôi dám hứa ngay từ bây giờ với ông rằng ông rất có hy vọng vào được nhà lục xì, bao giờ công việc chữa chạy trong ấy xong xuôi...
+-- Điều ấy ông Virgitti đã có nói cho tôi biết. Ông chủ nhiệm báo ông không những lấy tư cách nhà báo mà còn lấy cả tư cách dân biểu nữa. Đáng lẽ ra, Nhà nước có thể từ chối lời yêu cầu ấy một cách dễ dàng mà chẳng cần phải cắt nghĩa gì cả. Nhưng mà vào trường hợp này, vì lẽ thành phố vừa bỏ ra một số tiền to để sửa đổi phúc đường, nên để các ông vào thì cũng là ý kiến hay. Vả lại, trái hẳn với nhiều người Pháp vẫn nghĩ, tôi thì tôi cho rằng báo giới An Nam rất có thể đồng lao cộng tác với nhà nước trong mọi sự phải làm cho dân chúng, miễn rằng các nhà viết báo cáo ông không được cố ý nói sai sự thực để vu oan cho các nhà cầm quyền. Tôi dám hứa ngay từ bây giờ với ông rằng ông rất có hy vọng vào được nhà lục xì, bao giờ công việc chữa chạy trong ấy xong xuôi...
 
 Tôi sung sướng cực điểm. Được phép vào nhà lục xì nào có phải là một việc dễ! Từ khi nước Việt Nam có nghề viết báo, và từ khi nghề viết báo có cái mục phóng sự, trong số các bậc tiền bối của tôi hoặc những bạn đồng nghiệp thiếu đầu đề của tôi, đã bao nhiêu ông muốn khám phá ra những cái bí mật trong nhà lục xì?
 
-- Thưa bác sĩ, đích xác ngày nào thì tôi vào được?
+-- Thưa bác sĩ, đích xác ngày nào thì tôi vào được?
 
-- Điều ấy, ông phải chờ ông Đốc lý.
+-- Điều ấy, ông phải chờ ông Đốc lý.
 
-- Thưa bác sĩ, nhân tiện tôi muốn hỏi ngài vì đâu mà từ chữ Dispensaire người An Nam chúng tôi lại gọi là lục xì. Ngay đến bọn làm báo chúng tôi cũng không hiểu danh từ quái gở ấy xuất xứ từ đâu mà ra.
+-- Thưa bác sĩ, nhân tiện tôi muốn hỏi ngài vì đâu mà từ chữ Dispensaire người An Nam chúng tôi lại gọi là lục xì. Ngay đến bọn làm báo chúng tôi cũng không hiểu danh từ quái gở ấy xuất xứ từ đâu mà ra.
 
-- À! Lục xì là ở chữ _Luck sir_, một động từ hồng mao[^12]. _Luck sir_ là khám bệnh. Hẳn trong số những ông thầy thuốc trong nom phúc đường từ xưa kia, đã có một ông hay bông đùa, hay dùng tiếng hồng mao trong khi đáng lẽ phải dùng tiếng Pháp. Tôi tưởng có do thế thì cái tiếng cái nhà lục xì (_cai nha loock see_) mới phổ cập trong dân chúng An Nam như thế.
+-- À! Lục xì là ở chữ _Luck sir_, một động từ hồng mao[^12]. _Luck sir_ là khám bệnh. Hẳn trong số những ông thầy thuốc trong nom phúc đường từ xưa kia, đã có một ông hay bông đùa, hay dùng tiếng hồng mao trong khi đáng lẽ phải dùng tiếng Pháp. Tôi tưởng có do thế thì cái tiếng cái nhà lục xì (_cai nha loock see_) mới phổ cập trong dân chúng An Nam như thế.
 
 Ngừng lại một lúc, bác sĩ tiếp:
 
-- Ông nên cố làm thế nào cho dân chúng hiểu rõ rằng _Dispensaire_ không phải là nơi cầm bọn kỹ nữ có bệnh như những tù nhân, mà chỉ có chỗ chữa bệnh làm phúc cho những kẻ không có tiền, và không cứ phải làm đĩ mới đến chữa bệnh ở đấy được. Lục xì, cái tên ấy gây ra trong óc tất cả mọi người những cảm giác không tốt, và làm sai lạc cả ý muốn những người từ tâm sáng lập ra nó. Cái tiếng lục xì lại hóa ra một mối hại nữa cho vấn đề vệ sinh chung, mặc lòng phúc đường là một nơi không có không được, và trong ấy Nhà nước chỉ làm những điều ích lợi cho các kỹ nữ.
+-- Ông nên cố làm thế nào cho dân chúng hiểu rõ rằng _Dispensaire_ không phải là nơi cầm bọn kỹ nữ có bệnh như những tù nhân, mà chỉ có chỗ chữa bệnh làm phúc cho những kẻ không có tiền, và không cứ phải làm đĩ mới đến chữa bệnh ở đấy được. Lục xì, cái tên ấy gây ra trong óc tất cả mọi người những cảm giác không tốt, và làm sai lạc cả ý muốn những người từ tâm sáng lập ra nó. Cái tiếng lục xì lại hóa ra một mối hại nữa cho vấn đề vệ sinh chung, mặc lòng phúc đường là một nơi không có không được, và trong ấy Nhà nước chỉ làm những điều ích lợi cho các kỹ nữ.
 
 Kim đồng hồ chạy thành một vệt thẳng xuống như một cái cột điện.
 
@@ -164,7 +164,7 @@ Kim đồng hồ chạy thành một vệt thẳng xuống như một cái cột
 
 Tôi vội vàng nói những điều cần nói:
 
-- Thưa bác sĩ, tôi xin cố sức thế nào để có thể hữu ích được trong sự đồng lao cộng tác với nhà nước... Ý muốn của tôi là viết một thiên phóng sự về phúc đường, nạn hoa liễu, nạn mãi dâm. Nhưng mà tôi lại không phải là một ông y khoa bác sĩ cũng như không phải là một ông giám đốc phúc đường! Như vậy, tôi phải yêu cầu bác sĩ giúp tôi, nghĩa là cho tôi những vật liệu...
+-- Thưa bác sĩ, tôi xin cố sức thế nào để có thể hữu ích được trong sự đồng lao cộng tác với nhà nước... Ý muốn của tôi là viết một thiên phóng sự về phúc đường, nạn hoa liễu, nạn mãi dâm. Nhưng mà tôi lại không phải là một ông y khoa bác sĩ cũng như không phải là một ông giám đốc phúc đường! Như vậy, tôi phải yêu cầu bác sĩ giúp tôi, nghĩa là cho tôi những vật liệu...
 
 Tức khắc bác sĩ Joyeux đứng lên, ra lục lọi mấy cái tủ sách đựng những công văn, giấy má nhà nước. Sự ấy dài 5 phút, những cái cảm động trong lòng tôi sẽ dài đời đời. Tôi không ngờ một tay làm báo bản xứ mà lại được một ông chánh một công sở xử đãi tốt đến như thế. Khi bác sĩ Joyeux quay lại bàn giấy thì tôi có trước mặt những sách như dưới đây:
 
@@ -178,39 +178,39 @@ Tức khắc bác sĩ Joyeux đứng lên, ra lục lọi mấy cái tủ sách 
 
 Ngần ấy sách khảo cứu đều của một tác giả: bác sĩ Joyeux.
 
-- Đây, tất cả những vật liệu chung quanh vấn đề gay go ấy là vấn đề mãi dâm. Ông cứ việc đọc đi thì rồi ông sẽ vừa là một ông giám đốc nhà lục xì, lại vừa là một ông y khoa bác sĩ nữa.
+-- Đây, tất cả những vật liệu chung quanh vấn đề gay go ấy là vấn đề mãi dâm. Ông cứ việc đọc đi thì rồi ông sẽ vừa là một ông giám đốc nhà lục xì, lại vừa là một ông y khoa bác sĩ nữa.
 
-- Xin cảm tạ ngài vô cùng. Thưa bác sĩ, nhân tiện xin ngài cho biết ý những nhà cầm quyền đối với cái đoàn thể các cô ả đào như thế nào?
+-- Xin cảm tạ ngài vô cùng. Thưa bác sĩ, nhân tiện xin ngài cho biết ý những nhà cầm quyền đối với cái đoàn thể các cô ả đào như thế nào?
 
-- Những cô đào nương các vùng châu thành, ông nói?
+-- Những cô đào nương các vùng châu thành, ông nói?
 
-- Vâng. Nhà cầm quyền có liệt họ vào hàng mãi dâm hay không? Theo ý riêng của tôi thì chính cái đoàn thể ấy phải chịu một phần trách nhiệm lớn trong cái nạn phong tình bây giờ...
+-- Vâng. Nhà cầm quyền có liệt họ vào hàng mãi dâm hay không? Theo ý riêng của tôi thì chính cái đoàn thể ấy phải chịu một phần trách nhiệm lớn trong cái nạn phong tình bây giờ...
 
-- Thì cố nhiên! Họ không là mãi dâm thì còn là gì nữa? Chẳng cứ tôi có ý kiến ấy, cả những ông bạn đồng nghiệp của tôi như bác sĩ Le Roydes Barres và bác sĩ Coppin cũng đã liệt họ vào hàng kỹ nữ đã từ lâu.
+-- Thì cố nhiên! Họ không là mãi dâm thì còn là gì nữa? Chẳng cứ tôi có ý kiến ấy, cả những ông bạn đồng nghiệp của tôi như bác sĩ Le Roydes Barres và bác sĩ Coppin cũng đã liệt họ vào hàng kỹ nữ đã từ lâu.
 
 Nói xong bác sĩ lục giấy má, đưa ra cho tôi xem một cái thơ đặt hàng một lúc hai trăm cái bốc. Dưới thư ấy tôi thấy ký một tên: Nghĩa.
 
 Bác sĩ Joyeux hỏi tôi:
 
-- Ông hẳn phải biết người chủ cô đào có danh tiếng này?
+-- Ông hẳn phải biết người chủ cô đào có danh tiếng này?
 
-- Vâng.
+-- Vâng.
 
-- Ấy đó. Nếu không mãi dâm, sao người ta lại nhờ tôi mua hộ ở tận Pháp một lúc những ngần ấy cái đồ thụt rửa? Còn chứng cớ nào hiển nhiên hơn nữa không?
+-- Ấy đó. Nếu không mãi dâm, sao người ta lại nhờ tôi mua hộ ở tận Pháp một lúc những ngần ấy cái đồ thụt rửa? Còn chứng cớ nào hiển nhiên hơn nữa không?
 
-- Nhưng mà, thưa bác sĩ, tại sao lại những hai trăm?
+-- Nhưng mà, thưa bác sĩ, tại sao lại những hai trăm?
 
-- Vì đó là người chủ ấy thửa hộ cho cả phố Khâm Thiên! Mua càng nhiều càng được rẻ tiền.
+-- Vì đó là người chủ ấy thửa hộ cho cả phố Khâm Thiên! Mua càng nhiều càng được rẻ tiền.
 
-- Đã vậy sao cô đào lại không phải khám ở phúc đường?
+-- Đã vậy sao cô đào lại không phải khám ở phúc đường?
 
-- Chỉ vì ngoài địa phận thành phố Hà Nội thì là đất bảo hộ, mà Thành phố thì không có quyền gì đối với dân của vua Bảo Đại. Do thế, dân Hà thành bị các nhà hát giả danh ấy vây trong một vòng vây những vi trùng hoa liễu mà phòng Vệ sinh của thành phố không có cách gì đối phó cả, vì lẽ ông Đốc lý Hà thành còn phải kính trọng cái điều ước mà quan Thống lĩnh nước Pháp ký với nhà vua An Nam[^13].
+-- Chỉ vì ngoài địa phận thành phố Hà Nội thì là đất bảo hộ, mà Thành phố thì không có quyền gì đối với dân của vua Bảo Đại. Do thế, dân Hà thành bị các nhà hát giả danh ấy vây trong một vòng vây những vi trùng hoa liễu mà phòng Vệ sinh của thành phố không có cách gì đối phó cả, vì lẽ ông Đốc lý Hà thành còn phải kính trọng cái điều ước mà quan Thống lĩnh nước Pháp ký với nhà vua An Nam[^13].
 
-- Thì ra đó là vấn đề chính trị chứ không phải chỉ là một vấn đề vệ sinh!
+-- Thì ra đó là vấn đề chính trị chứ không phải chỉ là một vấn đề vệ sinh!
 
 Bác sĩ Joyeux buông xuôi hai tay, thở dài.
 
-- Chính thế. Cho nên hiện giờ, ông Đốc lý Virgitti và tôi đương sửa soạn in một cuốn sách khảo cứu về cô đào và gái nhảy, nhan đề là _Le Péril Vénérien dans la Zône suburbaine de Hanoi_[^14] để rồi đệ lên Phủ Toàn quyền để quan Toàn quyền biết rõ những cái nguy hiểm ấy cho dân thành phố đất thuộc địa.
+-- Chính thế. Cho nên hiện giờ, ông Đốc lý Virgitti và tôi đương sửa soạn in một cuốn sách khảo cứu về cô đào và gái nhảy, nhan đề là _Le Péril Vénérien dans la Zône suburbaine de Hanoi_[^14] để rồi đệ lên Phủ Toàn quyền để quan Toàn quyền biết rõ những cái nguy hiểm ấy cho dân thành phố đất thuộc địa.
 
 Kim đồng hồ chỉ 6 giờ 15.
 
@@ -218,7 +218,7 @@ Tôi đứng lên cảm ơn lần nữa và xin cáo từ.
 
 Bác sĩ Joyeux ngăn tôi lại, ra tủ sách một lần nữa, lấy một ít giấy in đưa cho tôi.
 
-- Trong những vật liệu tôi trao cho ông, còn thứ này nữa mới là đủ.
+-- Trong những vật liệu tôi trao cho ông, còn thứ này nữa mới là đủ.
 
 Tôi nhìn thứ giấy gấp đôi ấy, in mực màu xanh. PHONG TÌNH CA KHÚC. Dưới một gốc cây, dưới bóng giăng thanh, bên một dòng sông, có một phụ nữ búi tóc sê goong, ôm một cây đàn nguyệt, ý chừng đương ca bài thơ vệ sinh. Tôi giở tờ giấy ấy, thấy có bài thơ như thế này:
 
@@ -228,11 +228,11 @@ Rong chơi, trầu thuốc, bạc bài đủ đâu?
 
 Bác sĩ Joyeux vừa mỉm cười vừa cắt nghĩa:
 
-- Thành phố vừa mới thửa in xong mấy vạn tờ giấy như thế. Mục đích: giảng dạy vệ sinh và cách khám bệnh cho gái mại dâm. Vì nỗi đa số bọn kỹ nữ là không biết một chữ nào cả nên nhà nước phải mượn đến Nàng Thơ để bọn ấy có thể học truyền khẩu mà thuộc lòng được. Đó thuộc về sự vệ sinh cho cả một chủng tộc chứ không phải để chúng ta xem xong rồi mà buồn cười.
+-- Thành phố vừa mới thửa in xong mấy vạn tờ giấy như thế. Mục đích: giảng dạy vệ sinh và cách khám bệnh cho gái mại dâm. Vì nỗi đa số bọn kỹ nữ là không biết một chữ nào cả nên nhà nước phải mượn đến Nàng Thơ để bọn ấy có thể học truyền khẩu mà thuộc lòng được. Đó thuộc về sự vệ sinh cho cả một chủng tộc chứ không phải để chúng ta xem xong rồi mà buồn cười.
 
-- Tôi xin cảm ơn bác sĩ vô cùng! Ước mong rằng lần sau, phải đến hỏi han ngài điều gì, ngài cũng dễ dãi như bữa hôm nay...
+-- Tôi xin cảm ơn bác sĩ vô cùng! Ước mong rằng lần sau, phải đến hỏi han ngài điều gì, ngài cũng dễ dãi như bữa hôm nay...
 
-- A biêntôt, Monsieu Phung![^15]
+-- A biêntôt, Monsieu Phung![^15]
 
 Bác sĩ giơ tay ra cho tôi bắt.
 
@@ -434,9 +434,9 @@ Không, không, và không!
 
 Trừ cho tiệt nghề mại dâm sẽ là một điều nguy hiểm.
 
-- Hay là theo chương trình của bác sĩ Le Roy des Barres?
+-- Hay là theo chương trình của bác sĩ Le Roy des Barres?
 
-- Nhà nước không đủ tiền để thực hành phần kiến thiết của chương trình ấy.
+-- Nhà nước không đủ tiền để thực hành phần kiến thiết của chương trình ấy.
 
 Không có tiền làm gì cả, thành phố Hà Nội chẳng giải phóng nghề mại dâm mà cũng không hẳn thắt buộc nghề mại dâm. Đối phó với nạn ấy, thành phố Hà Nội chỉ có thể làm qua loa...
 
@@ -448,7 +448,7 @@ Nhà lục xì của Hà Nội chỉ chứa được có hai trăm người, m�
 
 Năm, sáu người ấy phải đi kiểm sát, lùng bắt mười sáu nhà thổ chung, mười lăm nhà điếm riêng, ba trăm bảy mươi bảy phòng ngủ trong các nhà săm! Trong một đêm!
 
-- Cảnh sát phường chèo! _Police vaudevillesque_!
+-- Cảnh sát phường chèo! _Police vaudevillesque_!
 
 Bác sĩ Joyeux, Giám đốc ngạch y tế của thành phố, đã phải nói thế. Chúng ta sống dưới một chế độ không có ai chịu trách nhiệm. Đó là cái phiền phức của đất thuộc địa, của đất bảo hộ, của điều ước Patenôtre 1884 nó đẻ ra mọi sự rắc rối lôi thôi như ngân sách Bắc Kỳ bảo hộ thì có nhà thương Phủ Doãn, công quỹ thành phố Hà Nội thuộc địa thì có nhà lục xì.
 
@@ -462,7 +462,7 @@ Rồi chúng ta đến nhà lục xì.
 
 Đứng trước cái cửa ghê gớm ấy, ta chỉ niệm cái câu thần chú thông thường này: "Sésame, ouvre loi".
 
-- Vừng ơi, mở ra!
+-- Vừng ơi, mở ra!
 
 # V - Cuộc đi bách bộ trong nhà lục xì
 
@@ -478,11 +478,11 @@ Hôm nay là ngày 28 tháng Chạp, năm Bính Tý.
 
 Bọn phóng viên, hai người của tờ _Việt Báo_, một người của tờ _Đông Pháp_ và tôi, đã vào đợi trong sân nhà lục xì. Ông Đốc lý lúc ấy còn làm hướng đạo cho các bà quý quan như bà Thống soái Buhrer[^31], một vài bà khác nữa, lúc ấy cũng đương đi thăm các gian phòng ở bên trong. Thành phố đã đánh điện thoại mời khắp mặt làng báo Hà thành, vậy mà chỉ có bốn chúng tôi có mặt tại đây thôi. Những bạn khác có lẽ đã về quê sửa soạn ăn Tết cả. Lúc chúng tôi đã đợi bác sĩ Joyeux trong sân nhà lục xì rồi, một viên y sĩ cũng còn gọi điện thoại để mời báo _Trung Bắc_, báo _Ngày nay_... Một viên cảnh sát Tây - rất ngạc nhiên khi thấy báo giới trong phúc đường vừa cười vừa hỏi đùa tôi:
 
-- Các ông là nhà báo cả? Thế ở những "con vịt" nào vậy? Thôi đi, rồi các ông lại đi kể những chuyện tam toạng!
+-- Các ông là nhà báo cả? Thế ở những "con vịt" nào vậy? Thôi đi, rồi các ông lại đi kể những chuyện tam toạng!
 
 Còn ông Mas, thanh tra đạo cảnh binh xướng kỹ, thì cứ có vẻ rất đắc chí, vừa chỉ trỏ các luống hoa tươi tốt đương nô đùa dưới những hạt mưa xuân - những luống hoa nó làm cho nhà lục xì có vẻ một cái biệt thự - vừa hỏi chúng tôi.
 
-- Các ông thử nhìn xem? Ở đây có vẻ một nhà tù không? Thế này mà cứ gọi là nhà tù à?
+-- Các ông thử nhìn xem? Ở đây có vẻ một nhà tù không? Thế này mà cứ gọi là nhà tù à?
 
 Phía ngoài, ngay chỗ cửa vào, độ chừng mười ba bà mụ giầu đương chuyện trò ầm ĩ chung quanh người gác cửa. Quần lĩnh đen, áo bông the hoặc áo bông xa tanh đen, cả khăn tua cũng đen. Có điều đáng để ý nhất, là bà nào cũng béo nục béo nạc. Họ đến để lĩnh "con gái" về ăn Tết, vì năm nay, nhà lục xì đã ban một cái đặc ân cho gái "có giấy" là cho họ ra ngoài ăn Tết, mặc lòng bệnh họ chưa khỏi hẳn. Cứ trông đến thái độ khép nép rất có lễ độ, luôn luôn sợ hãi của họ và cái màu đen nghiêm trang đứng đắn của y phục họ, người không biết dám chắc không ai tưởng họ làm cái nghề ghê gớm là nghề chủ nhà thổ. Phần nhiều mộc mạc, không phấn sáp lòe loẹt gì cả, lại bệ vệ ở chỗ người nào cũng béo, trông họ còn có vẻ đài các ra phết của các bậc mệnh phụ, hoặc ít ra thì cũng của những bà mẹ hiền của những gia đình trưởng giả và bảo thủ, có thể biểu hiện cho cái thế hệ chưa tân thời ở xã hội ta. Nghĩ thế rồi thì ta muốn vỗ tay reo vạn tuế cụ Nguyễn Du! _Nhác trông lờn lợt màu da_... Chỉ với một tí thế thôi, họ cũng vẫn đủ tự tố cáo họ là bọn mụ giầu chứ chẳng cần nói rằng ta lại gặp họ trong sân nhà lục xì.
 
@@ -494,7 +494,7 @@ Trong khi chờ bác sĩ Joyeux, ông nói về nhà lục xì, về các bệnh
 
 Độ 4 giờ chiều thì bác sĩ Joyeux đến, với cặp kính trắng bác học, với đôi ghết-đờ-vin[^32] phong tình nó làm cho ông ta có cái vẻ một ông bác sĩ trong chuyện chớp bóng.
 
-- Nào! Chúng ta đi thăm phúc đường!
+-- Nào! Chúng ta đi thăm phúc đường!
 
 Chúng tôi đi theo quan Đốc lý và ông Giám đốc Sở Vệ sinh thành phố, có gần đủ nhân viên nhà lục xì đi theo chúng tôi. Ta rẽ sang tay trái!
 
@@ -524,7 +524,7 @@ Cuộc thăm thú gần kết liễu, ông Đốc lý có ý cho chúng tôi ch�
 
 Năm chục ả đứng xếp hàng dài trước miếu. Bọn mụ giầu đứng phía đối diện. Người ta giải chiếu ra. Một mụ thỉnh chuông. Rồi lần lượt các mụ và các ả vào lễ. Có mụ, sau khi lễ thần Bạch My lại quay lại vái quan Đốc lý, tỏ ý tạ ơn. Thấy tôi mỉm cười, ông Virgitti vội phân trần:
 
-- Các ông đừng cho rằng nhà nước xui họ mê tín, nhưng mà là lợi dụng cái mê tín của họ cho được việc. Thả họ ra mà không bắt họ thề, sợ họ làm liều, lại tham tiền mà đổ bệnh trong dân gian.
+-- Các ông đừng cho rằng nhà nước xui họ mê tín, nhưng mà là lợi dụng cái mê tín của họ cho được việc. Thả họ ra mà không bắt họ thề, sợ họ làm liều, lại tham tiền mà đổ bệnh trong dân gian.
 
 Rồi chúng tôi cáo lui.
 
@@ -532,7 +532,7 @@ Thật vậy, nhờ ông Virgitti và ông Joyeux, bọn gái bị giam trong l�
 
 Người đĩ lậu thuế thì mới được bọn làng chơi trả đắt.
 
-- Làm thế nào ngăn cho số năm nghìn đĩ lậu khỏi truyền bệnh trong dân gian?
+-- Làm thế nào ngăn cho số năm nghìn đĩ lậu khỏi truyền bệnh trong dân gian?
 
 Đến câu này thì ta cần phải nói chuyện với ông Mas, thanh tra ban "đội con gái".
 
@@ -596,15 +596,15 @@ Theo ý riêng của tôi thì dù đặt ra luật lệ nào đi nữa thì cũ
 
 Đây, lời bác sĩ Le Dantec:
 
-- Ở đây chỉ có một người Pháp là cảnh binh xướng kỹ. Đáng lẽ phải có nhiều hơn thế nữa mới phải. Độ bao nhiêu thì đủ cho cả Đông Dương? Tôi nói thí dụ nhà nước tuyển thêm người. Trước nhất đã có một điều khó giải quyết: nếu tuyển thì chỉ dùng người Pháp được thôi vì chúng ta đã thừa hiểu rõ cái tâm địa dân An Nam để mà không cho dự vào những việc ấy, vì những lẽ gì không cần nói lắm. (_Bullet, Médico-chir, Avril 1912_)[^44].
+-- Ở đây chỉ có một người Pháp là cảnh binh xướng kỹ. Đáng lẽ phải có nhiều hơn thế nữa mới phải. Độ bao nhiêu thì đủ cho cả Đông Dương? Tôi nói thí dụ nhà nước tuyển thêm người. Trước nhất đã có một điều khó giải quyết: nếu tuyển thì chỉ dùng người Pháp được thôi vì chúng ta đã thừa hiểu rõ cái tâm địa dân An Nam để mà không cho dự vào những việc ấy, vì những lẽ gì không cần nói lắm. (_Bullet, Médico-chir, Avril 1912_)[^44].
 
 Đến lượt ông Gauducheau thì ông này dữ dội hơn nữa:
 
-- Khi một con bé khốn nạn phải bán thân nuôi miệng thì tức khắc nhà nước vồ lấy nó, rồi bắt nó đóng một thứ thuế mà có người kêu ca là vô nhân đạo. Sau khi đã sắp chết đói thì lại đến cái nhục nhã... Rồi thì lại đến lượt anh thám tử bản xứ hành hạ, trong khi thừa hành chức vụ, không những chỉ canh gác mọi điều trái phép mà còn canh gác cả đến số tiền kiếm được trong nhà thanh lâu! Người ta muốn nói đến sự cải cách ngạch đội con gái. Không được. Người ta không thể cải cách một cái tai họa của dân chúng mà được. Người ta phải bãi bỏ nó đi mới được! (_Bullet, Médico-Chir, Fév. 1915_)[^45].
+-- Khi một con bé khốn nạn phải bán thân nuôi miệng thì tức khắc nhà nước vồ lấy nó, rồi bắt nó đóng một thứ thuế mà có người kêu ca là vô nhân đạo. Sau khi đã sắp chết đói thì lại đến cái nhục nhã... Rồi thì lại đến lượt anh thám tử bản xứ hành hạ, trong khi thừa hành chức vụ, không những chỉ canh gác mọi điều trái phép mà còn canh gác cả đến số tiền kiếm được trong nhà thanh lâu! Người ta muốn nói đến sự cải cách ngạch đội con gái. Không được. Người ta không thể cải cách một cái tai họa của dân chúng mà được. Người ta phải bãi bỏ nó đi mới được! (_Bullet, Médico-Chir, Fév. 1915_)[^45].
 
 Cho mãi đến 1925, ngạch cảnh sát ấy cũng vẫn bị công kích. Bác sĩ Coppin, Giám đốc Dispensaire, người nhận chức này trước ông Joyeux, mà cũng viết như thế này:
 
-- Nhân nói đến nạn mại dâm, ta cũng không nên giấu thiên hạ một cái ung độc là cảnh binh xướng kỹ mà xưa nay, bất cứ ở nước nào có lệ luật quy định nghề mại dâm, người ta cũng la ó, mà ở xứ này thì nó lại càng tai hại. Nhất là khi người ta hiểu rõ nhân cách của bọn người An Nam làm việc cho Nhà nước ấy mà cái gì cũng tiền là xong. Mặc lòng bị dò la kỹ thế nào nữa, người "đội con gái" cũng ăn tiền để hoãn sự lùng bắt bọn đĩ lậu, và do thế, ta thấy những đứa bị bắt toàn là những đứa không có một xu trong túi! (_Bullet de la Sté Médico - Chirurgicale - Juin 1925_)[^46].
+-- Nhân nói đến nạn mại dâm, ta cũng không nên giấu thiên hạ một cái ung độc là cảnh binh xướng kỹ mà xưa nay, bất cứ ở nước nào có lệ luật quy định nghề mại dâm, người ta cũng la ó, mà ở xứ này thì nó lại càng tai hại. Nhất là khi người ta hiểu rõ nhân cách của bọn người An Nam làm việc cho Nhà nước ấy mà cái gì cũng tiền là xong. Mặc lòng bị dò la kỹ thế nào nữa, người "đội con gái" cũng ăn tiền để hoãn sự lùng bắt bọn đĩ lậu, và do thế, ta thấy những đứa bị bắt toàn là những đứa không có một xu trong túi! (_Bullet de la Sté Médico - Chirurgicale - Juin 1925_)[^46].
 
 Ấy đó, những lời ông công kích ngạch đội con gái ở đây. Mà của ai? Của dân chúng người Nam chăng? Không! Của những ông tây mà dân đen chúng mình gọi là "quan trên". Thật thế, chẳng một người "đội con gái" ta cứ thấy các ông nói đến nhân cách với tâm thuật người Nam, ta cũng đủ ngượng cả mặt. Thế thì ở những nước văn minh, thí dụ như nước Pháp, cái ngạch ấy được xét là hay dở như thế nào?
 
@@ -644,7 +644,7 @@ Tôi đã nghĩ thầm: "Thà rằng các thầy đội con gái có thể lạm
 
 Tôi nhắc lại với bà Limougie câu này:
 
-- _La peur du gendarime est le commencement de la sagesse_.[^53]
+-- _La peur du gendarime est le commencement de la sagesse_.[^53]
 
 Bà đã xo vai, mỉm cười.
 
@@ -672,21 +672,21 @@ Cảnh ngộ ả nào thì có lẽ cũng tương tự như nhau cả. Những g
 
 Tôi muốn gọi vài ả để hỏi một đôi câu chuyện. Bà giám thị của phúc đường, nói bằng tiếng Pháp, vội ngăn:
 
-- Họ không đáp đâu. Báo của ông đã có lần gọi họ là gái đĩ nên họ bất bình lắm. Sao ông không tìm một chữ khác nhẹ nhàng hơn? Ngay trong này, nhân viên cũng không ai gọi họ là con đĩ.
+-- Họ không đáp đâu. Báo của ông đã có lần gọi họ là gái đĩ nên họ bất bình lắm. Sao ông không tìm một chữ khác nhẹ nhàng hơn? Ngay trong này, nhân viên cũng không ai gọi họ là con đĩ.
 
 À! Thì ra tôi đã vấp phải cái lòng tự ái ghê gớm của loài người! Tôi đã có lỗi, có lỗi to lắm! Sao lại được gọi một gái đĩ là một gái đĩ? Đáng lẽ tôi phải gọi họ thí dụ là... Nàng thơ hoặc là... cái gì khác thì hơn.
 
 Tôi bèn mỉm cười hỏi lại bà giám thị:
 
-- Thưa bà, vậy ra tôi không có quyền gọi sự gì bằng cái tên của nó?
+-- Thưa bà, vậy ra tôi không có quyền gọi sự gì bằng cái tên của nó?
 
-- Ông có thể gọi họ thí dụ "gái giang hồ".
+-- Ông có thể gọi họ thí dụ "gái giang hồ".
 
 Tôi đã buồn cười, vì họ bị giam trong này thì nào có "giang hồ" gì đâu! Cho nên thỉnh thoảng bạn đọc thấy tôi phài dùng đến hai chữ "thanh lâu" mặc lòng họ mặc cả áo kiểu Lemur, mặc lòng chúng ta đã xa cái thời mà Nguyễn Du, trong khi nói đến: "_Vành ngoài bảy chữ, vành trong tám nghề..._" _nước vỏ lựu, máu mào gà, và đôi hoa lót xuống chiếu nằm..._ đã chưa biết đến rằng những cô Kiều tân thời còn có việc với thuốc _Gonacrine_, thuốc _914_, thuốc _Dmelcos_, cái mỏ vịt (_speculum_) nhà lục xì, những luật lệ thắt buộc mại dâm, và ban "đội con gái".
 
 Muốn xem lời mách bảo của bà giám thị là đúng sự thực không, tôi đã hé mở cái rèm cửa kính phòng giấy. Những ả đương ngồi chuyện vãn ở nghinh phong đình và chỗ chờ chữa thuốc ở phòng ông y sĩ Đặng Hanh Kiên đều cau mặt lườm nguýt tôi. Thật thế, đã bị nghi kỵ, oán ghét, chắc tôi không dò hỏi được gì nữa. Tôi liền hỏi bà Limongie:
 
-- Thưa bà, trong khi trông coi phúc đường, thì cái cảm tưởng của bà với bọn gái kia, với nạn mại dâm là thế nào? Xin bà vui lòng đáp, nhất là bà cũng không muốn tôi được gọi họ là đĩ, mặc lòng họ đã là đĩ chính thức. Tôi muốn xem sự bất bình ấy có chính đáng không.
+-- Thưa bà, trong khi trông coi phúc đường, thì cái cảm tưởng của bà với bọn gái kia, với nạn mại dâm là thế nào? Xin bà vui lòng đáp, nhất là bà cũng không muốn tôi được gọi họ là đĩ, mặc lòng họ đã là đĩ chính thức. Tôi muốn xem sự bất bình ấy có chính đáng không.
 
 Bà giám thị cứ việc soạn những mẩu bìa trong có ghi tên những gái lục xì và vẽ hình dung những cái âm hộ có chấm bút chì xanh hoặc đỏ (dấu hiệu ghi bệnh trạng của bệnh nhân) mà không đáp vội. Chợt từ lớp học lại vang ra cái bài _Phong tình ca khúc_ của nhà nước mà mấy chục học trò của bà khán hộ Nghĩa vui vẻ đồng thanh đọc, khiến tôi phải nhớ đến cái thời học sinh của tôi... về một giờ _Lecture collective_[^59].
 
@@ -718,23 +718,23 @@ _Xà phòng với nước tìm nơi giội ùa..._
 
 Đây tôi không chối cãi sự hữu ích của một bài vè như thế. Trong bọn thanh lâu, vẫn có nhiều ả hoặc vì lười biếng, hoặc vì ngu đần, mà không bao giờ biết một chút nào về mọi phép vệ sinh, để cho nạn hoa liễu đã hoành hành chín mươi phần trăm dân gian, cái dân dâm đãng một cách đáng sỉ nhục này, cái dân đã đến lúc đáng gọi là dân của Sodome và Gomorrhet[^60] chứng cớ là quảng cáo bệnh phong tình phủ kín khắp các báo chí. Nhưng mà tôi có quyền ngạc nhiên khi thấy hạng gái kia, phải học những bài như thế, mà khi thấy tôi gọi đến tên, mà lại bất bình! Sau khi phân trần, tôi lại nói với bà đầm giám thị:
 
-- Thưa bà, tôi đã được biết ý kiến những người danh giá như các ông: Le Roy des Barres, Coppin, Joyeux, Virgitti, về cuộc đổi mới, theo Âu hóa một cách ngu dại, của xã hội tôi. Các ông đã rất khinh bỉ cái lòng ham muốn vật chất nó sinh ra cuộc đồi phong bại tục ở dân tộc này. Nghề mại dâm chính là ác quả của sự đồi bại ấy. Bây giờ nếu được biết ý kiến của bà nữa, một phụ nữ phải chữa chạy cái vết thương kia, thì cuộc điều tra phỏng vấn của tôi sẽ được đầy đủ, hoàn toàn!
+-- Thưa bà, tôi đã được biết ý kiến những người danh giá như các ông: Le Roy des Barres, Coppin, Joyeux, Virgitti, về cuộc đổi mới, theo Âu hóa một cách ngu dại, của xã hội tôi. Các ông đã rất khinh bỉ cái lòng ham muốn vật chất nó sinh ra cuộc đồi phong bại tục ở dân tộc này. Nghề mại dâm chính là ác quả của sự đồi bại ấy. Bây giờ nếu được biết ý kiến của bà nữa, một phụ nữ phải chữa chạy cái vết thương kia, thì cuộc điều tra phỏng vấn của tôi sẽ được đầy đủ, hoàn toàn!
 
 Bà Limongie vội xo vai mà rằng:
 
-- Tôi không muốn bình phẩm người Nam như các ông quan trên của tôi. Điều ấy khó nói lắm.
+-- Tôi không muốn bình phẩm người Nam như các ông quan trên của tôi. Điều ấy khó nói lắm.
 
-- Thưa bà, bọn gái trụy lạc kia, thì những cái gì dắt họ đến chốn này? Sự nghèo đói hay sự hư hỏng?
+-- Thưa bà, bọn gái trụy lạc kia, thì những cái gì dắt họ đến chốn này? Sự nghèo đói hay sự hư hỏng?
 
 Bà giám thị đáp ngay:
 
-- Tôi tưởng phần nhiều là vì nghèo đói. Tôi biết rõ họ lắm, họ phần nhiều là gái quê, thất nghiệp. Hư hỏng thì có lẽ cũng có, nhưng "hư hỏng" theo cái nghĩa Tây phương thì, không!
+-- Tôi tưởng phần nhiều là vì nghèo đói. Tôi biết rõ họ lắm, họ phần nhiều là gái quê, thất nghiệp. Hư hỏng thì có lẽ cũng có, nhưng "hư hỏng" theo cái nghĩa Tây phương thì, không!
 
 Giữa lúc ấy, một thị y phục rất sang trọng, đôi giầy
 
 cao gót Charles IX[^61], cái áo ba-đờ-xuy rất hợp thời trang màu hạt giẻ, gót sen nhẹ nhõm như của một tiểu thư khuê các, yểu điệu qua sân, ra khỏi phúc đường. Ngạc nhiên, tôi đưa mắt hỏi, thì bà giám thị cắt nghĩa:
 
-- Ấy cũng là một cô ở ngoài, vào để học đan áo với
+-- Ấy cũng là một cô ở ngoài, vào để học đan áo với
 
 bọn chị em có bệnh bị giam ở đây. Họ có thì giờ rỗi thì tự họ đến học, xuất nhập tự do, vì nhà nước đặt ra ban học nghề để họ có thể mai sau thoát khỏi vòng mại dâm, tất nhiên phải để những cô nào muốn học thì đến...
 
@@ -770,7 +770,7 @@ Nếu ông có việc ra tòa hay về phố Julien Blance thì ông cứ đi th
 
 Vì rằng đó là họ đến với cái "mỏ vịt", nghĩa là cái biểu tượng của nhà lục xì. Và của nghề mại dâm. Muốn biết những cái nhục hình của nghề mại dâm thì phải trông thấy một buổi khám bệnh.
 
-- Thì họ lên cái thuyền ấy để làm trò quỷ gì?
+-- Thì họ lên cái thuyền ấy để làm trò quỷ gì?
 
 Có những cô ả mặt mũi khô héo với những quần áo tươi tốt. Lại có những cô mặt mũi sạch sẽ với những cái áo ốm yếu và bẩn thỉu. Có người vấn tóc trần, đeo kiềng vàng lối Huế, hoặc cúp tóc nhuộm đỏ và uốn quăn, lại có thị vận cả măng-tô rất hợp thời trang. Những cái môi tô son hình quả tim, những cái lông mày chạy xếch kiểu Mai Lan Phương[^66], những cái mi mắt quầng đen theo lối Greta Garbo[^67], trên những cái mặt hoặc béo hoặc gầy của những cô gái Đình Bảng, cầu Lim, Phùng, Noi, v.v... mà giăng gió Hà Thành văn vật nghìn năm không làm biến được nguyên chất. Nhưng mà, thảng hoặc, trong số tám chục ả ấy, cũng có độ vài ba thị là có cái ngây thơ đài các thi vị của cô Tuyết trong cuốn _Đời mưa gió_ của Khái Hưng. Cánh cửa xám mở lại khép, khép lại mở, cho bọn ấy chạy tọt vào. Không lần nào khách qua đường lại rõ được mặt người gác cổng.
 
@@ -780,7 +780,7 @@ Tôi rảo gót rồi nhấc cái mũ.
 
 Ông Nguyễn Huy Quỳnh vội vàng quay lại:
 
-- A! Chào ông... _Tương Lai_[^68].
+-- A! Chào ông... _Tương Lai_[^68].
 
 Ông y sĩ Nguyễn Huy Quỳnh sẽ là một nhà bác học, nếu ta kể sự "biết" của ông về những cái khốn nạn, ô uế của xã hội. Với cái bề ngoài trưởng giả đứng đắn, đó là một người nhờ chức nghiệp mà hiểu rõ tình trạng đồi bại của dân Hà Nội ta hơn cả một đảng viên cách mệnh, hơn cả một kẻ đã phá sản vì hư thân.
 
@@ -826,17 +826,17 @@ Nếu có vết thương loe loét ở hạ thể thì họ dùng đến ba các
 
 Một ả có trong tay một cái khăn mùi soa, một ả khác một mảnh giấy không có nghĩa lý. Tức thì, người "đội con gái" trừng mắt:
 
-- Cất ngay cái khăn đi! Vứt mảnh giấy ngay!
+-- Cất ngay cái khăn đi! Vứt mảnh giấy ngay!
 
 Họ phải tay không - hai bàn tay trắng - mà lên với cái "mỏ vịt". Và đừng có chuyện! Và đừng có nói! Và đừng có cười ồ ồ!
 
 Bên trong, ông thánh tra Mas, với cái giọng nặng của một người Pháp, lơ lớ điểm danh.
 
-- _Tran Ti Lock!_
+-- _Tran Ti Lock!_
 
-- Dạ!
+-- Dạ!
 
-- _N'guyen Ti Yane! N'guyen Ti Suan! Phame Ti Ti!..._
+-- _N'guyen Ti Yane! N'guyen Ti Suan! Phame Ti Ti!..._
 
 Trần thị Lộc, Nguyễn thị Yến, Nguyễn thị Sửu, Phạm thị Tý...
 
@@ -858,7 +858,7 @@ Thị Sửu khả nghi. Sau cái "mỏ vịt" đến cái đũa tre có bịt b�
 
 Thị Sửu khả nghi thì ông thầy thuốc ra lệnh:
 
-- _Isolenment!_[^72]
+-- _Isolenment!_[^72]
 
 Danh từ ấy có nghĩa là tạm chứ không được tại ngoại hậu cứu! Ở đây, ông thầy thuốc lại còn là ông quan tòa. Người ta có thể bị tiền giam chỉ vì sự tố cáo của một ít bông có dây chút nước bẩn.
 
@@ -866,35 +866,35 @@ Danh từ ấy có nghĩa là tạm chứ không được tại ngoại hậu c�
 
 Sau cái tiền âm thì đến ngay cái hậu. Núm bông lôi ra có đủ mọi sự tố cáo rành mạch. Tức thì ông thầy thuốc quắc mắt mắng mụ chủ:
 
-- Nó mắc bệnh rồi! Sao chị được dung túng những cái ấy? Chị không nhớ quan trên đã dặn bảo thế nào hay sao?
+-- Nó mắc bệnh rồi! Sao chị được dung túng những cái ấy? Chị không nhớ quan trên đã dặn bảo thế nào hay sao?
 
 Mụ giầu, chủ Thị Tý, người chịu trách nhiệm, chắp tay cãi:
 
-- Bẩm quan lớn, con có biết gì đâu! Con làm gì được!
+-- Bẩm quan lớn, con có biết gì đâu! Con làm gì được!
 
 Bà Limongie giơ trước mặt ông đốc Quỳnh cái các của Thị Tý. Ông này nhăn mặt quở:
 
-- Năm 1933, nó đã bị một lần rồi. Nhà nước đã phải chữa nó ba tháng mới khỏi! Con này sao mày được tiếp khách như thế?
+-- Năm 1933, nó đã bị một lần rồi. Nhà nước đã phải chữa nó ba tháng mới khỏi! Con này sao mày được tiếp khách như thế?
 
 Thị Tý, lúc ấy đã bước xuống đất, vừa khóc, vừa đáp:
 
-- Bẩm quan lớn, không thế thì nó bóp cổ con chết mất!
+-- Bẩm quan lớn, không thế thì nó bóp cổ con chết mất!
 
-- Thế thì mày phải gọi đội sếp chứ!
+-- Thế thì mày phải gọi đội sếp chứ!
 
-- Bẩm... nhưng mà nó đã lột truồng con ra rồi!
+-- Bẩm... nhưng mà nó đã lột truồng con ra rồi!
 
-- Mày không kêu cứu ai à?
+-- Mày không kêu cứu ai à?
 
-- Bẩm. Ở nhà săm chứ không ở nhà con. Hôm ấy săm vắng khách.
+-- Bẩm. Ở nhà săm chứ không ở nhà con. Hôm ấy săm vắng khách.
 
 Mụ giầu nói len vào:
 
-- Bẩm quan lớn, ở nhà con thì con gọi đội sếp ngay chứ còn đâu!
+-- Bẩm quan lớn, ở nhà con thì con gọi đội sếp ngay chứ còn đâu!
 
-- Một thằng...?
+-- Một thằng...?
 
-- Bẩm, đó là một thằng da đen ạ.
+-- Bẩm, đó là một thằng da đen ạ.
 
 Thị Tý bị dẫn đi rồi, ông thầy thuốc phát cho mụ chủ của thị một hộp thuốc _Pommade de Dueret_[^73].
 
@@ -954,21 +954,21 @@ Các ngài thử tưởng tượng ra xem một lũ người "con cái nhà ai" 
 
 Cho nên, khi mới nhận chức vụ, lần đầu tiên bước vào cái lớp học dị kỳ này, cô giáo Nghĩa, với hai làm răng ngà ngọc, với cái áo blouse trắng và cái mũ có dấu hiệu hồng thập tự - hình ảnh một nhân vật đầy thi vị của màn ảnh để an ủi những chiến sĩ bị thương trong hồi Âu chiến - chưa chi đã phải nhượng bộ học trò. Đáng lẽ khi cô giáo bước vào mà học trò khoanh tay đứng dậy cả một lượt, thì đó là cô giáo phải chào trước những nữ học sinh.
 
-- Chào các chị! Nhà nước mới mở ra trường học này, mục đích là để dạy cho các chị biết phép vệ sinh, những điều cần biết để giữ mình cho khỏi tổn thọ, vì làm cái nghề như các chị là rất hại cho sức khỏe...
+-- Chào các chị! Nhà nước mới mở ra trường học này, mục đích là để dạy cho các chị biết phép vệ sinh, những điều cần biết để giữ mình cho khỏi tổn thọ, vì làm cái nghề như các chị là rất hại cho sức khỏe...
 
 Cô giáo chỉ kịp nói thế, thì từ hàng ghế cuối cùng, một chị vênh váo cái mặt, đứng phắt lên...
 
 Thị tên là Tâm thị Dã Mận. Phải là ở trong "thanh lâu giới", và cũng phải là "anh chị" nữa, người ta mới có những cái họ, tên lạ lùng như thế. Thị bĩu mồm cong cớn diễn thuyết cho cả bọn:
 
-- Chị em chúng mình chính là vì không biết sàng không có biết sẩy, thì mới phải sa chân đến chốn "vườn hoa đô hội" này, đã làm cái nghề này, thì ví thử còn phải học cái gì cơ chứ, ví thử còn hy vọng gì nữa chứ?
+-- Chị em chúng mình chính là vì không biết sàng không có biết sẩy, thì mới phải sa chân đến chốn "vườn hoa đô hội" này, đã làm cái nghề này, thì ví thử còn phải học cái gì cơ chứ, ví thử còn hy vọng gì nữa chứ?
 
 Tức thì cả bọn lao xao biểu đồng tình với nhà "lãnh tụ". Nhưng cô giáo Nghĩa vẫn ôn tồn:
 
-- Không! Các chị đừng nói thế. Không cứ các chị, dẫu ai thì cũng cần phải biết mọi phép vệ sinh. Mắc bệnh phong tình, không phải chỉ các chị mới mắc. Nhiều khi một cặp vợ chồng lành mạnh mà cũng có thể mắc bệnh được, chỉ vì chẳng hiểu vệ sinh là gì. Sở dĩ thành phố mở ra trường này là để dạy các chị những cách tránh thoát bệnh tật trong nghề mình. Các chị thử xem nhà nước bỏ ra bao nhiêu tiền, chi tiêu một khoản rất to tát, để mà gìn giữ sức khỏe cho các chị, như thế này... Có phải là ghét bỏ, khinh bỉ các người không? Ta thử nghĩ xem nào!
+-- Không! Các chị đừng nói thế. Không cứ các chị, dẫu ai thì cũng cần phải biết mọi phép vệ sinh. Mắc bệnh phong tình, không phải chỉ các chị mới mắc. Nhiều khi một cặp vợ chồng lành mạnh mà cũng có thể mắc bệnh được, chỉ vì chẳng hiểu vệ sinh là gì. Sở dĩ thành phố mở ra trường này là để dạy các chị những cách tránh thoát bệnh tật trong nghề mình. Các chị thử xem nhà nước bỏ ra bao nhiêu tiền, chi tiêu một khoản rất to tát, để mà gìn giữ sức khỏe cho các chị, như thế này... Có phải là ghét bỏ, khinh bỉ các người không? Ta thử nghĩ xem nào!
 
 Những lời của cô giáo rất ôn tồn, rất khoan thai. Diễn giải làm cho "quần chúng" phải lật cái dư luận lại một vòng. Bọn thanh lâu đã nghe ra... Cô giáo bèn giơ ra tập thơ _Phong tình ca khúc_, nói:
 
-- Muốn cho các người hiểu rõ nghề, một nhà thi sĩ Việt Nam đã đặt ra những câu thơ để các người học thuộc lòng, rồi nhân đó, sẽ hiểu rõ những điều mình phải làm...
+-- Muốn cho các người hiểu rõ nghề, một nhà thi sĩ Việt Nam đã đặt ra những câu thơ để các người học thuộc lòng, rồi nhân đó, sẽ hiểu rõ những điều mình phải làm...
 
 Thơ?
 
@@ -980,19 +980,19 @@ _Rong chơi, trầu thuốc, bạc bài đủ đâu!_
 
 Thật là "hay quá đi mất"! Cô giáo cứ đọc... Nhưng đến lúc Nàng Thơ dạy bảo đến cách thức một gái đĩ phải khám bệnh một khách làng chơi như thế nào[^82], thì tất cả những ả ấy nhao lên... Một thị nói rõ to:
 
-- Ê chệ! Ê chệ!
+-- Ê chệ! Ê chệ!
 
 Cô giáo ngừng lại, vừa ngạc nhiên, vừa lúng túng... Một nữ học sinh khác lại phản đối:
 
-- Phen này, Nhà nước xử quá như thế, thì nhà thổ Hà Nội cứ gọi là cứ đi hết! Thế thì thôi, chị em chúng mình đến "bán xới" đất Hà Nội! Học hành gì lại có thứ học hành ê chệ đến thế nữa!
+-- Phen này, Nhà nước xử quá như thế, thì nhà thổ Hà Nội cứ gọi là cứ đi hết! Thế thì thôi, chị em chúng mình đến "bán xới" đất Hà Nội! Học hành gì lại có thứ học hành ê chệ đến thế nữa!
 
 Đó, tính cả thẹn của nhà thổ là đến thế! Trong bốn chục người này, con số là bao, những ả vì tính cả thẹn vô nghĩa ấy mà phải cầm giấy? Thật thế, vì nếu biết cách tránh bệnh từ trước khi phải biết bắt, thì dù đã mại dâm đến lượt thứ bốn nữa rồi, thần Bạch My cũng không có quyền ghi tên ả vào sổ đoạn trường, nếu cái "mỏ vịt" không tìm thấy con trùng lậu, con trùng giang mai. Cho nên cô giáo lại phải ôn tồn cắt nghĩa cho rõ đầu đuôi:
 
-- Không! Các người đừng tưởng thế là đáng xấu hổ. Chúng tôi đây, phải học nghề nữ khán hộ, thì cũng phải biết như thế! Nếu chúng tôi được quan trên bảo khám bệnh người đàn ông nào, thì chúng tôi cũng phải làm y như thế, các người đã nghe ra chưa? Ở đời này, không nên cho sự gì là xấu, mà thật sự thì cũng không có sự gì là xấu. Cái xấu là cái ngu dốt, là cái để lây bệnh kẻ khác vào người mình! Tôi không bảo rằng các chị làm nghề này mới cần biết những điều nói trong bài thơ vệ sinh mà thôi. Tôi nói ngay cả những người đàn bà tử tế, vì ngu dốt mà để cho ông chồng chơi bời đổ bệnh cho, đó mới là một điều đáng xấu hổ, mà lại hại cho con cái, hại cho giống nòi. Các chị nên chịu học, đừng có cưỡng lại. Vì nhà nước mở ra lớp học này không phải cốt để làm nhục các chị, nhưng mà cốt để giữ cho các chị khỏe mạnh, khỏi chết non, mai sau kiếm được tấm chồng thì cũng phải không đến nỗi lo tuyệt đường con cái!
+-- Không! Các người đừng tưởng thế là đáng xấu hổ. Chúng tôi đây, phải học nghề nữ khán hộ, thì cũng phải biết như thế! Nếu chúng tôi được quan trên bảo khám bệnh người đàn ông nào, thì chúng tôi cũng phải làm y như thế, các người đã nghe ra chưa? Ở đời này, không nên cho sự gì là xấu, mà thật sự thì cũng không có sự gì là xấu. Cái xấu là cái ngu dốt, là cái để lây bệnh kẻ khác vào người mình! Tôi không bảo rằng các chị làm nghề này mới cần biết những điều nói trong bài thơ vệ sinh mà thôi. Tôi nói ngay cả những người đàn bà tử tế, vì ngu dốt mà để cho ông chồng chơi bời đổ bệnh cho, đó mới là một điều đáng xấu hổ, mà lại hại cho con cái, hại cho giống nòi. Các chị nên chịu học, đừng có cưỡng lại. Vì nhà nước mở ra lớp học này không phải cốt để làm nhục các chị, nhưng mà cốt để giữ cho các chị khỏe mạnh, khỏi chết non, mai sau kiếm được tấm chồng thì cũng phải không đến nỗi lo tuyệt đường con cái!
 
 Một vài thị nhoẻn một nụ cười hoài nghi. Một thị khác, ý chừng lo cho lời nói của thầy giáo chỉ là câu mỉa mai châm chọc, nói kéo rõ dài cái mồm:
 
-- Thưa bà, bà dạy quá lời thế, chứ như chị em chúng con đây thì, xin lỗi bà, còn hy vọng cái "nước mẹ" gì nữa?
+-- Thưa bà, bà dạy quá lời thế, chứ như chị em chúng con đây thì, xin lỗi bà, còn hy vọng cái "nước mẹ" gì nữa?
 
 Ấy đó, cô giáo.
 
@@ -1026,61 +1026,61 @@ Tôi đã phải nhịn cười, thấy ông thi sĩ tác giả bài _Phong tìn
 
 Bà khán hộ Nghĩa bước xuống bục, khẽ nói với tôi:
 
-- Tôi tưởng có lẽ ông vào đây lần này là lần cuối cùng. Ông có biết không? Những bệnh nhân trong này đã lấy làm khó chịu về nhà báo. Có lẽ họ đã kêu với bà giám thị để bà xin quan Chánh, quan Đốc lý, từ nay đừng có cho ông vào đây nữa. Họ phàn nàn rằng đã đến như họ là khổ lắm, nhục lắm rồi, mà người trên lại cho người nhà báo vào kiếm chuyện, rêu rao họ là đĩ, nói xấu họ, nhìn họ như nhìn những loài hổ, báo, trăn, rắn trên bách thú thì thật khó chịu lắm. Tôi chắc nay mai quan trên sẽ chiếu theo lời xin ấy thì ắt ông không còn được phép vào nữa, có phải không?
+-- Tôi tưởng có lẽ ông vào đây lần này là lần cuối cùng. Ông có biết không? Những bệnh nhân trong này đã lấy làm khó chịu về nhà báo. Có lẽ họ đã kêu với bà giám thị để bà xin quan Chánh, quan Đốc lý, từ nay đừng có cho ông vào đây nữa. Họ phàn nàn rằng đã đến như họ là khổ lắm, nhục lắm rồi, mà người trên lại cho người nhà báo vào kiếm chuyện, rêu rao họ là đĩ, nói xấu họ, nhìn họ như nhìn những loài hổ, báo, trăn, rắn trên bách thú thì thật khó chịu lắm. Tôi chắc nay mai quan trên sẽ chiếu theo lời xin ấy thì ắt ông không còn được phép vào nữa, có phải không?
 
-- Thưa bà, ấy là họ hiểu nhầm. Nếu nghề báo chỉ là một nghề nói xấu thì tôi tưởng những người để tâm làm cải cách xã hội, nhà lập pháp, nhà chánh trị, ai cũng là đi nói xấu cả? Nhưng thôi, nếu đã thế thì rồi tôi sẽ ra ngoài. Chỉ xin rằng đã vào lần này thì ít ra cũng phải ở lại để biết một đôi điều cần biết, thế thôi. Bà có sẵn lòng nói cho tôi cảm tưởng của bà khi làm phận sự không?
+-- Thưa bà, ấy là họ hiểu nhầm. Nếu nghề báo chỉ là một nghề nói xấu thì tôi tưởng những người để tâm làm cải cách xã hội, nhà lập pháp, nhà chánh trị, ai cũng là đi nói xấu cả? Nhưng thôi, nếu đã thế thì rồi tôi sẽ ra ngoài. Chỉ xin rằng đã vào lần này thì ít ra cũng phải ở lại để biết một đôi điều cần biết, thế thôi. Bà có sẵn lòng nói cho tôi cảm tưởng của bà khi làm phận sự không?
 
 Thế là bà giáo đã vui lòng:
 
-- Cảm tưởng thì nhiều lắm, ông ạ. Khi quan Chánh gọi tôi đến nhận việc, tôi lo quá đi mất. Trong ký ức tôi vẫn còn rõ rệt cái phận sự khó nhọc và khó chịu của hạng gõ đầu trẻ, khi phải đối phó với những cái tinh nghịch, quỷ quái, những cái bất trị của nam, nữ học sinh. Vậy mà tôi dạy ai, ở đâu? Trong _Dispensaire_! Những gái giang hồ! Thật là một trường học mới lạ, kỳ quái nhất Đông Dương, nếu tôi không nói: kỳ quái nhất thế giới. Tôi đã ngẫm nghĩ mãi, vì các thầy giáo, cô giáo khác thì theo khuôn phép cũ, những chương trình nhà nước đã vạch mà giảng dạy. Nếu học trò hỗn láo thì đã sẵn có cái thước kẻ, cách bắt quỳ, bắt phạt. Nhưng khi học trò là gái giang hồ, xấu thì cũng đến làm đĩ là cùng, sợ thì cũng đến lục xì là cùng, hỏi có nên phạt họ không? Họ thì còn sợ cái gì nữa? Thật là nguy hiểm. Vậy mà tôi đã phải nhận, vì nhờ chức nghiệp, tôi đã hiểu rõ cái nạn phong tình ở nước nhà hơn ai. Dạy học ở đây, quan Chánh bảo đó không phải đó là một nghề kiếm tiền mà thôi, nhưng còn là một nghĩa vụ xã hội nữa.
+-- Cảm tưởng thì nhiều lắm, ông ạ. Khi quan Chánh gọi tôi đến nhận việc, tôi lo quá đi mất. Trong ký ức tôi vẫn còn rõ rệt cái phận sự khó nhọc và khó chịu của hạng gõ đầu trẻ, khi phải đối phó với những cái tinh nghịch, quỷ quái, những cái bất trị của nam, nữ học sinh. Vậy mà tôi dạy ai, ở đâu? Trong _Dispensaire_! Những gái giang hồ! Thật là một trường học mới lạ, kỳ quái nhất Đông Dương, nếu tôi không nói: kỳ quái nhất thế giới. Tôi đã ngẫm nghĩ mãi, vì các thầy giáo, cô giáo khác thì theo khuôn phép cũ, những chương trình nhà nước đã vạch mà giảng dạy. Nếu học trò hỗn láo thì đã sẵn có cái thước kẻ, cách bắt quỳ, bắt phạt. Nhưng khi học trò là gái giang hồ, xấu thì cũng đến làm đĩ là cùng, sợ thì cũng đến lục xì là cùng, hỏi có nên phạt họ không? Họ thì còn sợ cái gì nữa? Thật là nguy hiểm. Vậy mà tôi đã phải nhận, vì nhờ chức nghiệp, tôi đã hiểu rõ cái nạn phong tình ở nước nhà hơn ai. Dạy học ở đây, quan Chánh bảo đó không phải đó là một nghề kiếm tiền mà thôi, nhưng còn là một nghĩa vụ xã hội nữa.
 
-- Thưa bà, ngoài những bài học vệ sinh thực hành, tôi rất để ý đến một khoản trong chương trình là bài: Khái luận về địa vị người đàn bà trong xã hội và nghề mại dâm. Ấy là một điều đáng biết. Vậy bà giảng bài ra sao? Khuyên răn họ bỏ nghề mại dâm chăng? Cải tà quy chính cho họ chăng?
+-- Thưa bà, ngoài những bài học vệ sinh thực hành, tôi rất để ý đến một khoản trong chương trình là bài: Khái luận về địa vị người đàn bà trong xã hội và nghề mại dâm. Ấy là một điều đáng biết. Vậy bà giảng bài ra sao? Khuyên răn họ bỏ nghề mại dâm chăng? Cải tà quy chính cho họ chăng?
 
 Đến đây, bà giáo Nghĩa ngăn tôi bằng cái xua tay và nói khẽ:
 
-- Trong chương trình tuy nói vắn tắt thế, nhưng lúc thực hành thì lại khác hẳn. Điều nguy hiểm là tuy họ là đĩ, nhưng không bao giờ tôi lại được nói đến tiếng ấy. Họ là hạng người bị xã hội khinh bỉ lắm rồi, đến nỗi nhà nước phải dè dặt, sợ chạm lòng tự ái của họ, sợ họ tủi thân. Cho nên bài học chỉ là những câu chuyện về nhân tình thế thái, trong đó tôi đem những sự từng trải riêng nói xa xôi đến cái đời giang hồ, cái hạnh phúc gia đình. Điều gì cũng quy về một mục đích vệ sinh cả. Tôi đã phải đem những "vị quận chúa" trong làng mại dâm, trong nghề lấy Tây (đến đây, bà Nghĩa nói đến tên những đàn bà mà chúng ta thừa biết cái danh tiếng vang lừng, song tôi không thuật vào đây, vì rằng ở đời này vẫn sẵn có người thừa độc ác để lôi mình ra tòa án), những đĩ thượng lưu, ra nói cho học trò của tôi nghe, và bảo họ rằng ấy những người kia chỉ vì biết vệ sinh và giữ gìn nhan sắc, mà được các quan quý trọng, trở nên giàu có, thần thế. Đại khái như vậy. Ngoài ra, thỉnh thoảng nói đến việc lấy chồng, bổn phận người đàn bà tề gia nội trợ, cái hạnh phúc gia đình, sự chung tình, đừng có ngựa quen lối cũ nữa, vân vân... Xin ông nhớ cho rằng trong đám phụ nữ thì có lẽ bọn học trò tôi là "bảo thủ" nhất đấy! Họ đã bị hại về những tư tưởng ăn chơi, giải phóng với bình quyền, nên khi tôi nói như một người đạo đức hủ lậu, thì họ nghe một cách khâm phục lắm.
+-- Trong chương trình tuy nói vắn tắt thế, nhưng lúc thực hành thì lại khác hẳn. Điều nguy hiểm là tuy họ là đĩ, nhưng không bao giờ tôi lại được nói đến tiếng ấy. Họ là hạng người bị xã hội khinh bỉ lắm rồi, đến nỗi nhà nước phải dè dặt, sợ chạm lòng tự ái của họ, sợ họ tủi thân. Cho nên bài học chỉ là những câu chuyện về nhân tình thế thái, trong đó tôi đem những sự từng trải riêng nói xa xôi đến cái đời giang hồ, cái hạnh phúc gia đình. Điều gì cũng quy về một mục đích vệ sinh cả. Tôi đã phải đem những "vị quận chúa" trong làng mại dâm, trong nghề lấy Tây (đến đây, bà Nghĩa nói đến tên những đàn bà mà chúng ta thừa biết cái danh tiếng vang lừng, song tôi không thuật vào đây, vì rằng ở đời này vẫn sẵn có người thừa độc ác để lôi mình ra tòa án), những đĩ thượng lưu, ra nói cho học trò của tôi nghe, và bảo họ rằng ấy những người kia chỉ vì biết vệ sinh và giữ gìn nhan sắc, mà được các quan quý trọng, trở nên giàu có, thần thế. Đại khái như vậy. Ngoài ra, thỉnh thoảng nói đến việc lấy chồng, bổn phận người đàn bà tề gia nội trợ, cái hạnh phúc gia đình, sự chung tình, đừng có ngựa quen lối cũ nữa, vân vân... Xin ông nhớ cho rằng trong đám phụ nữ thì có lẽ bọn học trò tôi là "bảo thủ" nhất đấy! Họ đã bị hại về những tư tưởng ăn chơi, giải phóng với bình quyền, nên khi tôi nói như một người đạo đức hủ lậu, thì họ nghe một cách khâm phục lắm.
 
 Tôi quay lại nhìn một thị đầu tóc cúp ngắn và uốn quăn, mặc một cái áo tân thời cổ bánh bẻ rất thiếu mỹ thuật, trên lòng có cái ví đầm nhỏ, đương ngồi cắn móng tay và ngước mắt nhìn chúng tôi. Bà giáo nói ngay:
 
-- Ấy chớ! Ông đừng xét cái bề ngoài! Nghề họ bắt họ ăn mặc thế. Sự thực, họ đã chán những cái tân thời ấy lắm.
+-- Ấy chớ! Ông đừng xét cái bề ngoài! Nghề họ bắt họ ăn mặc thế. Sự thực, họ đã chán những cái tân thời ấy lắm.
 
-- Thưa bà, tôi đương run sợ cho những gái "lãng mạn" hiện ham những cái tân thời ấy để rồi nay mai vào ngồi trong này, như thế kia...
+-- Thưa bà, tôi đương run sợ cho những gái "lãng mạn" hiện ham những cái tân thời ấy để rồi nay mai vào ngồi trong này, như thế kia...
 
 Bà giáo của phúc đường mỉm cười, xo vai:
 
-- Ấy thế! Đó là vòng luẩn quẩn loanh quanh. Đó là... cái gì?... _La rancon du progrès!_[^83].
+-- Ấy thế! Đó là vòng luẩn quẩn loanh quanh. Đó là... cái gì?... _La rancon du progrès!_[^83].
 
 Ngừng một lát, bà tiếp:
 
-- Trong này, cô giáo lại kém vế nữ học sinh.
+-- Trong này, cô giáo lại kém vế nữ học sinh.
 
 Trước những sự công phẫn của họ, lắm khi tôi phải hy sinh cả tôi đi để cắt nghĩa cho họ hiểu. Tôi cứ phải lấy ngay tôi ra làm thí dụ, kẻo sợ chạm đến lòng tự ái của nữ sinh là gái giang hồ! Miễn xong việc giảng dạy thì thôi!
 
-- Xin bà làm việc cho tôi được mục kích một phút.
+-- Xin bà làm việc cho tôi được mục kích một phút.
 
-- Nào, đọc bài! Chị... chị Lan đâu! Kỳ trước chưa thuộc bài đấy nhé? - Bà giáo ngồi xuống ghế, dịu dàng gọi.
+-- Nào, đọc bài! Chị... chị Lan đâu! Kỳ trước chưa thuộc bài đấy nhé? - Bà giáo ngồi xuống ghế, dịu dàng gọi.
 
 Từ hàng ghế thứ ba, bên cạnh cô ả áo Lemur một thị độ mười sáu tuổi (tuy vậy, nhà nước phải nhận là mười tám tuổi) cái đầu bù xù một mớ tóc ngắn kiểu phương Tây nó bẩn làm sao, nó xấu làm sau, mặt mũi béo phị và xanh nhợt, đứng lên khoanh tay, lúc ngập ngừng, lúc lưu loát tựa hồ một con vẹt:
 
-- Một câu cách ngôn nói rằng: Sự sạch sẽ là ông thầy thuốc rất giỏi. Điều ấy rất đúng. Thật thế, người thầy thuộc chỉ chữa được bệnh, chứ sự sạch sẽ làm cho ta không mắc các bệnh. Như thế có phải hơn không vì không mắc bệnh thì tránh khỏi các phát tiêm đau nhức các thứ thuốc khó uống.
+-- Một câu cách ngôn nói rằng: Sự sạch sẽ là ông thầy thuốc rất giỏi. Điều ấy rất đúng. Thật thế, người thầy thuộc chỉ chữa được bệnh, chứ sự sạch sẽ làm cho ta không mắc các bệnh. Như thế có phải hơn không vì không mắc bệnh thì tránh khỏi các phát tiêm đau nhức các thứ thuốc khó uống.
 
 Bà giáo cắt:
 
-- Thôi! Tốt lắm! Chị ngoan lắm! Lên đây!
+-- Thôi! Tốt lắm! Chị ngoan lắm! Lên đây!
 
 Cô nữ sinh lên bục.
 
-- Sự sạnh sẽ của bộ phận sinh dục!
+-- Sự sạnh sẽ của bộ phận sinh dục!
 
 Cô nữ sinh lại đọc, lúc trơn tru, lúc ngắc ngứ, một hồi dài. Tạm được về phần lý thuyết. Đến lúc thực hành, nghĩa là lúc đứng trước cái bàn có những thứ đồ dùng vệ sinh, các lọ thuốc, cô học trò đã nhầm lẫn, lúng ta lúng túng, chẳng còn biết giở ngón ra sao. Bà giáo tức thì nắm lấy tay học trò, ẻo lả đập mấy cái vào vai, như trò đùa, với một nét mặt hết sức giận dữ.
 
 Nữ sinh bưng mồm cười, vì không thấy đau. Nhưng mà hai ba nữ sinh khác đã chạy lên! Họ giúi đầu cô học trò ngu đần xuống, đồng thanh xỉa xói:
 
-- Con khốn nạn! Đồ chết băm, chết vằm! Chỉ có một việc thế mà mãi mày không nhớ, để đến nỗi bà rát cổ mỏi mồm như thế!
+-- Con khốn nạn! Đồ chết băm, chết vằm! Chỉ có một việc thế mà mãi mày không nhớ, để đến nỗi bà rát cổ mỏi mồm như thế!
 
 Bà giáo Nghĩa quay lại tôi, phân bua:
 
-- Ấy đó, thưa ông, cái chính sách trừng trị của tôi.
+-- Ấy đó, thưa ông, cái chính sách trừng trị của tôi.
 
 Trong cái lớp học kỳ lạ này, học trò túm đánh lẫn nhau, mỗi khi thầy giáo thấy cần phải trừng phạt.
 
@@ -1088,11 +1088,11 @@ Trong cái lớp học kỳ lạ này, học trò túm đánh lẫn nhau, mỗi 
 
 Bà giáo còn nói:
 
-- Ta chớ tưởng gái lục xì chỉ làm việc cho bọn lính tráng cục mịch, bọn thợ thuyền thợ hạ lưu. Cái quan niệm tình ái của dân phương Tây khác xa dân mình. Gái lục xì, người mình không thèm, cho là không đáng kể. Nhưng người Tây phương lại cho việc có bạn gái lục xì là rất lợi cho phương diện vệ sinh! Cho nên ta chẳng nên ngạc nhiên khi ta thấy một vài gái lục xì có giấy ở riêng, có xe nhà, có xe hơi nhỏ, nhân tình của các quý quan, và đi nhuộm tóc ở phố Paul Bert[^84] mỗi lần mất mười sáu đồng bạc![^85]
+-- Ta chớ tưởng gái lục xì chỉ làm việc cho bọn lính tráng cục mịch, bọn thợ thuyền thợ hạ lưu. Cái quan niệm tình ái của dân phương Tây khác xa dân mình. Gái lục xì, người mình không thèm, cho là không đáng kể. Nhưng người Tây phương lại cho việc có bạn gái lục xì là rất lợi cho phương diện vệ sinh! Cho nên ta chẳng nên ngạc nhiên khi ta thấy một vài gái lục xì có giấy ở riêng, có xe nhà, có xe hơi nhỏ, nhân tình của các quý quan, và đi nhuộm tóc ở phố Paul Bert[^84] mỗi lần mất mười sáu đồng bạc![^85]
 
-- Thưa bà, những ả ấy hẳn là những nữ học sinh mà bà không phải dạy học vất vả?
+-- Thưa bà, những ả ấy hẳn là những nữ học sinh mà bà không phải dạy học vất vả?
 
-- Đã đành! Một vài chị "thượng lưu" như thế thì có khi lại thạo vấn đề vệ sinh hơn cả bà giáo! Nhưng số ấy hiếm quá. Số nhiều là gái đần độn, đần độn đến nỗi như câu phương ngôn "hỉ mũi không sạch" thì ông bảo có khổ tôi không? Thật là một cái nghề nguy hiểm là nghề mại dâm! Ông cứ quay nhìn sau lưng ông thì biết.
+-- Đã đành! Một vài chị "thượng lưu" như thế thì có khi lại thạo vấn đề vệ sinh hơn cả bà giáo! Nhưng số ấy hiếm quá. Số nhiều là gái đần độn, đần độn đến nỗi như câu phương ngôn "hỉ mũi không sạch" thì ông bảo có khổ tôi không? Thật là một cái nghề nguy hiểm là nghề mại dâm! Ông cứ quay nhìn sau lưng ông thì biết.
 
 Tôi giật mình, quay nhìn lại sau lưng...
 
@@ -1118,7 +1118,7 @@ Cho nên có khi ông thầy thuốc khám bệnh thấy có thị khắp mình 
 
 Cuộc xung đột của thần Bạch My và thần Lưu Linh khi nhà nước chưa cho dán cái yết thị kể trên trong những nhà thanh lâu. Nhưng mà khi ông thầy thuốc căn vặn nguyên do, thì một cái e thẹn vô nghĩa đã làm cho cô ả bị thương cứ khai man thế này:
 
-- Bẩm quan lớn, đó là con trượt chân ngã gác!
+-- Bẩm quan lớn, đó là con trượt chân ngã gác!
 
 Tôi đi ngả mũ chào cô giáo học của phúc đường.
 
@@ -1302,11 +1302,11 @@ Về những nguyên nhân của nạn mại dâm, tất cả các nhà chuyên 
 
 Một hôm, ở Paris, gặp một người Việt Nam vốn là học trò cũ của tôi, tôi có hỏi:
 
-- Tại sao các anh, ở xứ sở của các anh, lại không chịu cố sức mà bài trừ một cái nạn nó đã làm các anh phải thất bại trong cuộc trình bày những nguyện vọng chính đáng, tức là cái máu tham tiền rất ghê gớm nó chủ động ra đủ mọi cách hối lộ và đủ mọi cách xoay xở bất lương ở người đàn ông, và đủ mọi sự suy đồi về đức hạnh ở người đàn bà, trong xã hội anh?
+-- Tại sao các anh, ở xứ sở của các anh, lại không chịu cố sức mà bài trừ một cái nạn nó đã làm các anh phải thất bại trong cuộc trình bày những nguyện vọng chính đáng, tức là cái máu tham tiền rất ghê gớm nó chủ động ra đủ mọi cách hối lộ và đủ mọi cách xoay xở bất lương ở người đàn ông, và đủ mọi sự suy đồi về đức hạnh ở người đàn bà, trong xã hội anh?
 
 Thì người du học sinh ấy đáp tôi:
 
-- Nhưng mà những thói xấu mà tôi nhận là có ấy thì chính là tại các ông tải sang xứ sở chúng tôi! Trước khi có cuộc bảo hộ, chúng tôi đâu có những thói xấu ấy!
+-- Nhưng mà những thói xấu mà tôi nhận là có ấy thì chính là tại các ông tải sang xứ sở chúng tôi! Trước khi có cuộc bảo hộ, chúng tôi đâu có những thói xấu ấy!
 
 Câu đáp ấy là thiên lệch lắm, và không đúng sự thực nữa, vì đã có những điều đồi bại mà ai cũng biết, đã xảy ra từ khi nước Nam còn chịu ảnh hưởng của Tàu, mà nay thì người ta vội quên đi; tuy vậy mà lời đáp ấy cũng giáp tiếp có một đôi phần đúng với sự thực.
 
@@ -1334,7 +1334,7 @@ Bọn gái của phúc đường sống những đoạn đời "thâm khuê kín
 
 Bởi thế cho nên, đêm nay, tên bồi của săm V.L. đã phải trố hai con mắt kinh ngạc khi thấy một người có cái tinh thần hiền lành đến nỗi gần như ngốc nghếch nữa, mà lại ngồi vắt vẻo trên ban, cố nặn ra cái giọng hùng hồn của một tay "Càn Long"[^113] chính hiệu, đế truyền ra một cái lệnh đáng sợ:
 
-- Mày đi gọi cho tao hai người nhà thổ, bất cứ nhà nào cũng được, miễn là một người vừa già vừa xấu và một người nữa còn trẻ, mới vào nghề độ ít lâu thôi.
+-- Mày đi gọi cho tao hai người nhà thổ, bất cứ nhà nào cũng được, miễn là một người vừa già vừa xấu và một người nữa còn trẻ, mới vào nghề độ ít lâu thôi.
 
 Trong khi nói thế, tôi không thèm nhìn vào mặt tên bồi săm ấy. Trước khi hắn đi, nghe tiếng chân chậm chạp không đều của hắn, tôi cũng biết hắn đã phải quay lại nhìn cái phần sau lưng của tôi, độ vài ba lần... Hắn tưởng tôi là một người điên. Thật thế, sau... hai mươi năm kinh nghiệm trong nghề, có lẽ lần này là lần đầu hắn gặp một khách làng chơi kỳ dị như tôi.
 
@@ -1344,31 +1344,31 @@ Ban cảnh sát xướng kỹ đâu?
 
 Cái nhà săm này, thật vậy, là một tổ sản của nghề mại dâm lậu thuế. Tôi đứng ở hành lang ở trên gác cũng trông thấy rõ đủ sáu người đàn bà. Họ ở trong một căn phòng, và khi căn phòng ấy có người muốn trọ họ bị một tên bồi dồn sang một cái phòng bên cạnh, tồi tàn hơn. Hai lần hai cái cửa bị mở toang, ánh đèn hai lần chiếu ròi rọi vào cái đàn cừu ấy. Tôi đã trông thấy một người áo the thâm và quần lĩnh tía, một người nữa mà y phục nói rõ là gái quê buôn tơ, hai người khác ăn mặc cũng nhà quê, một người quần áo tân thời, và một người có cầm nón, chắc là bán hàng rong. Vạn tuế cho lão chủ săm vậy ôi! Lão có đủ hạng người: tân thời, nhà quê, đàn bà cổ, con sen, con nụ và cánh buôn bán "cẩn thận", nghĩa là lão có thể chiều đãi tất cả những ngài nào khó tính vào bậc nhất. Và những anh bồi sẽ gãi đầu, gãi tai nói như thế này:
 
-- Dạ, bẩm chắc chắn lắm ạ! Người buôn tơ ở Đình Bảng đấy! Cẩn thận lắm, vì lần đầu cô ta muốn kiểm thêm...
+-- Dạ, bẩm chắc chắn lắm ạ! Người buôn tơ ở Đình Bảng đấy! Cẩn thận lắm, vì lần đầu cô ta muốn kiểm thêm...
 
 Hoặc là:
 
-- Ứ ừ! Cậu cứ tưởng! Ở nhà quê mới ra đây có hai hôm... Mặc váy cẩn thận, và chưa biết đi guốc!
+-- Ứ ừ! Cậu cứ tưởng! Ở nhà quê mới ra đây có hai hôm... Mặc váy cẩn thận, và chưa biết đi guốc!
 
 Hay là thế này nữa:
 
-- Thì bẩm vâng chứ sao! Cậu muốn tân thời thì cũng có tân thời! Con nhà danh giá hẳn hoi... nhưng mà, giá tiền khí đắt một chút. Cậu cho năm đồng thì con đi gọi.
+-- Thì bẩm vâng chứ sao! Cậu muốn tân thời thì cũng có tân thời! Con nhà danh giá hẳn hoi... nhưng mà, giá tiền khí đắt một chút. Cậu cho năm đồng thì con đi gọi.
 
 Sau đó, tên bồi sẽ cam đoan một cách rất hùng hồn đại khái răng những món béo bở và chắc chắn, và cẩn thận, và danh giá, mà nó vừa tả cảnh ấy là ở xa, xa lắm phố Hàng Trống, phố Chợ Hôm, đường Quán Thánh, vân vân... Người khách đưa ra một hay là hai hào tiền xe. Nó xuống dưới nhà, nằm ngủ một giấc, hay là kéo vài điếu thuốc phiện, rồi bảo một cô ả đã trốn một chỗ trong căn phòng bên cạnh đi lên, và đòi tiền xe nhặng lên nếu ngài chưa đưa đủ cho nó từ lúc nãy.
 
 Nhưng đó là việc của những ông khách làng chơi hay là của các thầy đội con gái, chứ không lôi thôi gì đến tôi... Đây kia, những "người của tôi" đã đến rồi. Tôi phải vào gian phòng mà tôi đã thuê.
 
-- Ờ ờ! Rõ khéo khỉ lắm nữa!
+-- Ờ ờ! Rõ khéo khỉ lắm nữa!
 
 Thật vậy, lần này thì tôi được phép kiêu ngạo lắm. Tên bồi đã không lừa dối tôi. Đây là hai gái "có giấy" chính hiệu! Tôi đã trông thấy một ả, ở lục xì, lần đầu tôi bước chân vào giang sơn của bọn ấy. Thị cũng vậy, vẫn còn nhớ mặt tôi. Cho nên thị bước chân vào là bảo ngay rằng tôi "Khéo khỉ lắm nữa".
 
 Thị tiếp:
 
-- Lại cái anh này! Thấy bác bồi đến gọi (tôi thì chỉ là anh, mà thằng bồi là bác) mình lấy làm lạ, tự nghĩ sao lại có quan viên nào chơi ngông đến thế không biết! Có một mình mà lại cự địch với những hai! Bác bồi bác ấy lại đòi cô nào vừa già vừa xấu vào bậc nhất thì cứ ra đi! Càng lạ nữa! Thôi đi, anh lại định kháo chuyện chị em tôi để anh nói (?) trên nhật trình là cùng chứ gì?
+-- Lại cái anh này! Thấy bác bồi đến gọi (tôi thì chỉ là anh, mà thằng bồi là bác) mình lấy làm lạ, tự nghĩ sao lại có quan viên nào chơi ngông đến thế không biết! Có một mình mà lại cự địch với những hai! Bác bồi bác ấy lại đòi cô nào vừa già vừa xấu vào bậc nhất thì cứ ra đi! Càng lạ nữa! Thôi đi, anh lại định kháo chuyện chị em tôi để anh nói (?) trên nhật trình là cùng chứ gì?
 
 Không đáp, tôi trỏ tay vào một chiếc ghế, nói:
 
-- Ngồi chơi!
+-- Ngồi chơi!
 
 Tôi nhìn thị từ đầu đến chân. Một cái áo dài màu xanh lá mạ, một cái quần xa tanh trắng đã sờn, một đôi giầy gái nhảy. Trên những cái ấy là một thứ mặt người mà ai cũng không tin là có thật, nếu chưa từng bước vào một nhà thanh lâu. Thị không những xấu mà thôi, thị còn đáng ghê tởm đến buồn nôn lên nữa. Hai cái má bánh đúc nó... cặp môi dày nó... hai mắt nhỏ tí nó... chao ôi, khó nói quá đi mất! Thị có một cái bụng và hai bắp đùi có thể đựng lọt một người đàn ông tầm thước, và hai cánh tay để ôm cho chết ngạt người đàn ông ấy. Thêm vào những... mãnh lực như thế, lại còn một thứ giọng ồ ồ và một thứ cười cục cục nó rất đặc biệt cho những gái thanh lâu.
 
@@ -1376,37 +1376,37 @@ Cô bé kia dễ coi hơn nhiều! Nhưng mà vẫn có cái gì nó làm cho ta
 
 Và tôi nói:
 
-- Hai em ở chơi đây suốt đêm với anh, nhưng mà không... chơi!
+-- Hai em ở chơi đây suốt đêm với anh, nhưng mà không... chơi!
 
 Hai thị nhìn nhau, ngạc nhiên. Rồi, sau khi nghe rõ lời cắt nghĩa của tôi, cái cô ả nhiều tuổi bèn yêu cầu:
 
-- Nếu thế thì ít ra cũng phải "trô" vậy, chứ không thì chán bỏ bố! Không hút, thức sao được?
+-- Nếu thế thì ít ra cũng phải "trô" vậy, chứ không thì chán bỏ bố! Không hút, thức sao được?
 
 Cô ả còn "ngây thơ" bèn reo lên:
 
-- Ồ! Thế thì thích lắm!
+-- Ồ! Thế thì thích lắm!
 
 Tôi quay lại bảo tên bồi, lúc ấy còn đứng túc trực ở ngoài phòng:
 
-- Vào lấy tiền mua hộ hộp thuốc, rồi cho một cái bàn đèn lên đây!
+-- Vào lấy tiền mua hộ hộp thuốc, rồi cho một cái bàn đèn lên đây!
 
 Bên ngoài, vừa gió lại vừa mưa. Mùa đông đến đã được hai tuần lễ. Thật là một đêm buồn rầu đủ cho người ta xúc cảm để kể lể thân thế và chán nản tương lai. Cho nên thị Lành (tên ả có tuổi) lúc nhập đề, đã trở nên có văn vẻ lắm:
 
-- Anh hỏi thì tôi phải nói, chứ cái đời tôi thì còn đáng kể cho ai nghe làm gì! Nhàm tai ra mà thôi! Tôi bây giờ cũng như cái đò ngang, ai sang cũng chở tuốt!
+-- Anh hỏi thì tôi phải nói, chứ cái đời tôi thì còn đáng kể cho ai nghe làm gì! Nhàm tai ra mà thôi! Tôi bây giờ cũng như cái đò ngang, ai sang cũng chở tuốt!
 
 Vì không muốn thương tổn đến lòng tự ái của một người đàn bà (dẫu rằng là một chị nhà thổ nữa) tôi đã gối đầu vào đùi của thị, nhắm mắt lại mặc thị cứ hút, cứ tiêm... Nhưng thấy thị đi ra ngoài đầu đề nhiều quá, tôi phải mở to mắt ra để cho nguồn văn chương kia ngưng bớt lại.
 
-- Ô hay! Tôi bảo chị kể cái lúc chị bắt đầu cầm giấy thì nó ra làm sao, thế cơ mà?
+-- Ô hay! Tôi bảo chị kể cái lúc chị bắt đầu cầm giấy thì nó ra làm sao, thế cơ mà?
 
-- À! Được lắm! Tớ lại cứ tưởng đằng ấy bắt kể cả cái đời giang hồ ra, nghe chơi! Nhưng mà trô[^114] đi đã, nếu không thì tớ giận, tớ đòi về ngay bây giờ!
+-- À! Được lắm! Tớ lại cứ tưởng đằng ấy bắt kể cả cái đời giang hồ ra, nghe chơi! Nhưng mà trô[^114] đi đã, nếu không thì tớ giận, tớ đòi về ngay bây giờ!
 
 Sau khi tôi hút điếu thuốc, thị khẽ tát yêu tôi một cái. Còn con Yến thì nằm gối đầu vào một bên ống chân tôi, ngoan ngoãn nghịch bằng một cái đóm lia đi lia lại trên nõ điếu thuốc lào.
 
-- Nếu đêm nào cũng đi khách như thế này thì, mẹ kiếp! Làm nhà thổ là sướng nhất.
+-- Nếu đêm nào cũng đi khách như thế này thì, mẹ kiếp! Làm nhà thổ là sướng nhất.
 
 Thị Lành nhìn tròng trọc vào mắt tôi, tiếp một cách nũng nịu lối kỹ nữ:
 
-- Sao anh lại hiền lành như bụt thế, hở anh?
+-- Sao anh lại hiền lành như bụt thế, hở anh?
 
 Lần thứ nhì tôi phải nhắc đến chuyện bắt đầu cầm giấy của thị. Đó không phải việc dễ: đa số gái thanh lâu không biết chuyện, không hiểu rõ nghĩa lý một câu nói rất thường của nó. Nếu họ nói, họ chỉ hay dùng những tiếng không có trong Hán - Việt Tự điển! Nhưng tôi cũng biết đại khái như thế này:
 
@@ -1424,15 +1424,15 @@ Từ đấy thị Lành, vào những lúc bán bưởi, đã không gạt bàn 
 
 Thị bị một thầy đội con gái điệu về lục xì vào lúc bốn giờ đêm, khi thị cùng với một chàng công tử ở một nhà săm bước ra. Ông thầy thuốc tìm thấy cả trùng giang mai lẫn trùng lậu!
 
-- Anh ạ, tôi phải giam sáu tháng mới khỏi các bệnh. Đáng lẽ tôi chưa phải cầm giấy, vì mới bị bắt có lần đầu. Thế mà tôi phải cầm giấy! Phải xin cầm giấy ngay tức khắc! Chúng nó nhất định thế! Thì từ lúc nãy tôi đã bảo với anh rằng: vào nhà pha thì làm tù cho anh em, vào lục xì thì làm tù cho chị em.
+-- Anh ạ, tôi phải giam sáu tháng mới khỏi các bệnh. Đáng lẽ tôi chưa phải cầm giấy, vì mới bị bắt có lần đầu. Thế mà tôi phải cầm giấy! Phải xin cầm giấy ngay tức khắc! Chúng nó nhất định thế! Thì từ lúc nãy tôi đã bảo với anh rằng: vào nhà pha thì làm tù cho anh em, vào lục xì thì làm tù cho chị em.
 
 Thị Lành nói như vậy để không ai hiểu cả!
 
-- Chúng nó là những ai? Chị muốn nói cái gì!
+-- Chúng nó là những ai? Chị muốn nói cái gì!
 
 Thị gắt lên:
 
-- Chúng nó là bọn nhà thổ bị giam trong lục xì chữa bệnh, chứ còn ai nữa! Ma cũ bất nạt ma mới mà lại! Mụ chủ hẳn thiếu người, nên dặn con em phải xui tôi cầm giấy cho được! Không đêm nào chúng nó không đánh tôi như đòn _xăng tan_[^117]. Bọn đàn ông vào nhà pha thì có phải bị lính gác ngục hành hạ đâu! Chỉ những thằng tù, tù chung thân, sống lâu lên lão làng, chúng chẳng còn phải sợ cái gì nữa, là chúng hành hạ cực kỳ khổ sở, cực kỳ tàn nhẫn bọn "lính mới"! Bọn đàn bà bị bắt vào lục xì cũng vậy...
+-- Chúng nó là bọn nhà thổ bị giam trong lục xì chữa bệnh, chứ còn ai nữa! Ma cũ bất nạt ma mới mà lại! Mụ chủ hẳn thiếu người, nên dặn con em phải xui tôi cầm giấy cho được! Không đêm nào chúng nó không đánh tôi như đòn _xăng tan_[^117]. Bọn đàn ông vào nhà pha thì có phải bị lính gác ngục hành hạ đâu! Chỉ những thằng tù, tù chung thân, sống lâu lên lão làng, chúng chẳng còn phải sợ cái gì nữa, là chúng hành hạ cực kỳ khổ sở, cực kỳ tàn nhẫn bọn "lính mới"! Bọn đàn bà bị bắt vào lục xì cũng vậy...
 
 Đến đây, thị Lành nghiến răng nhớ đến cái phẫn uất từ hai mươi năm xưa! Thị đã cố cho tôi trông thấy cái nhà lục xì vào lúc nó là một nơi ngục tù ghê gớm cho bọn kỹ nữ, nghĩa là lúc nó còn ở một cái đền cũ trong khu vực Tòa đốc lý.
 
@@ -1442,49 +1442,49 @@ Thị gắt lên:
 
 Vậy thì, khi thị Lành sắp khỏi bệnh rồi, đêm nào cũng có ba đứa "có giấy" rất đáng sợ khuyên thị nên xin cầm giấy.
 
-- Này em ạ, đừng lo, cầm giấy sướng chán! Chả phải lẩn lút, trốn tránh như kẻ cắp nữa! Ta được đường hoàng làm cái nghề của ta. Chả sợ gì đội con gái nữa!
+-- Này em ạ, đừng lo, cầm giấy sướng chán! Chả phải lẩn lút, trốn tránh như kẻ cắp nữa! Ta được đường hoàng làm cái nghề của ta. Chả sợ gì đội con gái nữa!
 
-- Quan chánh cho ra thì xin cầm giấy ngay đi, rồi về cái nhà có chị, em ạ. Rồi chị sẽ che chở, dạy bảo cho em thạo những cách kiếm tiền. Có ừ hay không thì bảo tao?
+-- Quan chánh cho ra thì xin cầm giấy ngay đi, rồi về cái nhà có chị, em ạ. Rồi chị sẽ che chở, dạy bảo cho em thạo những cách kiếm tiền. Có ừ hay không thì bảo tao?
 
 Thị Lành được dỗ ngọt, bị đánh đập: không còn một cách nào mà những ả kia lại không dùng đến. Có lần thị đã bị những ả ấy cấu nát cơ quan sinh dục, sau khi bị họ cầm cái độn tóc đuôi gà mà tọng vào hậu môn. Cứng cổ được chừng ba đêm, đến đêm thứ tư thị Lành phải quỳ xuống đất, khóc lướt mướt, nói:
 
-- Em lạy các chị, đừng đánh đập em nữa! Em nhất định xin cầm giấy và về nhà các chị rồi!
+-- Em lạy các chị, đừng đánh đập em nữa! Em nhất định xin cầm giấy và về nhà các chị rồi!
 
 Bọn kia còn đánh tát thị cho đến lúc thị phải cam đoan thế sáu, bảy lần nữa.
 
-- Mày nói mà mày không làm như mày nói, thì mày chết với bà!
+-- Mày nói mà mày không làm như mày nói, thì mày chết với bà!
 
-- Mày mà không xin cầm giấy thì lần sau, vào đây đừng có hòng sống sót!
+-- Mày mà không xin cầm giấy thì lần sau, vào đây đừng có hòng sống sót!
 
-- Mày đừng tưởng ra khỏi cái nhà này thì rồi là không bao giờ phải quay vào một lần nữa đâu!
+-- Mày đừng tưởng ra khỏi cái nhà này thì rồi là không bao giờ phải quay vào một lần nữa đâu!
 
 Thị Lành cứ việc cúi đầu xuống, chỉ còn dám chống cự bằng van lạy, khóc mếu...
 
 Đến đây, tôi ngạc nhiên lắm. Tôi đã nói với ngài rằng thị Lành có một cái bụng và hai bắp đùi có thể đựng lọt một người đàn ông tầm thước, và hai cánh tay để ôm cho chết ngạt người đàn ông ấy. Tôi bèn ngắt thị lại, và hỏi:
 
-- Chị to béo như thế này mà lại để họ đánh đập một cách dễ dàng như thế sao? Nói đùa hay nói thật?
+-- Chị to béo như thế này mà lại để họ đánh đập một cách dễ dàng như thế sao? Nói đùa hay nói thật?
 
 Thị ngờ ngợ một lát rồi phì cười:
 
-- Tôi béo mới có bốn năm nay thôi. Hồi ấy, tôi còn gầy còm nữa, họ dễ bắt nạt lắm. Nghĩa là cứ làm mãi nghề này thì phải béo...
+-- Tôi béo mới có bốn năm nay thôi. Hồi ấy, tôi còn gầy còm nữa, họ dễ bắt nạt lắm. Nghĩa là cứ làm mãi nghề này thì phải béo...
 
 Đó là một sự nghe vô lý lắm, vậy mà quả thật nó thế đấy! Làm cái nghề mỗi đêm phá giá, độ mười lần, sức khỏe của mình đi, vậy mà lại béo phì nộn ra như được tẩm bổ bằng nhiều thứ sâm, nhung thượng hảo hạng! Câu nói "Giời sinh giời dưỡng" có lẽ là rất đúng cho gái thanh lâu.
 
 Thị kết luận:
 
-- Ấy vô số con gái nhà tử tế, có khi con gái khuê các nữa, mà phải cầm giấy, là vì đã bị hành hạ như thế.
+-- Ấy vô số con gái nhà tử tế, có khi con gái khuê các nữa, mà phải cầm giấy, là vì đã bị hành hạ như thế.
 
 Tôi bèn hỏi:
 
-- Thế còn chị, chính tay chị đã hành hạ độ bao nhiêu cô ả như thế?
+-- Thế còn chị, chính tay chị đã hành hạ độ bao nhiêu cô ả như thế?
 
 Thị ngừng tay tiêm để tỏ cái hệ trọng của sự phân bua:
 
-- Từ ngày xửa ngày xưa kia! Tất cả cũng độ năm hay sáu đứa là cùng... Trước thì tôi sẵn cái ác, để báo thù đời chơi, nhưng về sau, nghĩ rằng trong chỗ chị em toàn là một bọn xấu số với nhau, người ta cũng khổ như mình, anh bảo ác thì "nước mẹ" gì kia chứ! Phương ngôn đã nói: gà cùng một mẹ chớ hoài đá nhau, có phải thế không? Vả lại, mới đây, Nhà nước lại ngăn bằng chấn song sắt trong buồng ngủ để cho gái có giấy với gái lậu cách biệt hẳn nhau, còn đứa nào có thể ác được với đứa nào nữa!
+-- Từ ngày xửa ngày xưa kia! Tất cả cũng độ năm hay sáu đứa là cùng... Trước thì tôi sẵn cái ác, để báo thù đời chơi, nhưng về sau, nghĩ rằng trong chỗ chị em toàn là một bọn xấu số với nhau, người ta cũng khổ như mình, anh bảo ác thì "nước mẹ" gì kia chứ! Phương ngôn đã nói: gà cùng một mẹ chớ hoài đá nhau, có phải thế không? Vả lại, mới đây, Nhà nước lại ngăn bằng chấn song sắt trong buồng ngủ để cho gái có giấy với gái lậu cách biệt hẳn nhau, còn đứa nào có thể ác được với đứa nào nữa!
 
-- Này chị này, tôi thấy người ta đồn rằng những ả nào có nhan sắc, còn trẻ mà cầm giấy thì được chủ ưu đãi lắm.
+-- Này chị này, tôi thấy người ta đồn rằng những ả nào có nhan sắc, còn trẻ mà cầm giấy thì được chủ ưu đãi lắm.
 
-- Đã hẳn! Nhất là cô ả nào có vẻ trâm anh, khuê các. Ở Hà Nội này, có dăm nhà được những gái như thế. Chúng nó mà ra phố thì các anh cứ tin đứt là tiểu thư vì xưa kia chúng cũng đã là tiểu thư. Không bao giờ chúng ra cửa ăn quà vặt như hạng em (vì hạng em thì còn gìn giữ làm đếch gì)! Chúng đi đâu cũng diện xe, mà rất ít khi các ông bắt gặp người ta ra hay vào cái nhà số đỏ đấy nhé! Hễ trông thấy những ả ấy ngoài đường, trong hội chợ, trong các cuộc chợ phiên, các ông cứ tin đứt đó là những nữ học sinh đi thôi! Cho nên đã bao nhiêu chàng công tử đi bắt nhân tình với gái đã cầm giấy, mà cứ tưởng là chim được những tiểu thư khuê các!
+-- Đã hẳn! Nhất là cô ả nào có vẻ trâm anh, khuê các. Ở Hà Nội này, có dăm nhà được những gái như thế. Chúng nó mà ra phố thì các anh cứ tin đứt là tiểu thư vì xưa kia chúng cũng đã là tiểu thư. Không bao giờ chúng ra cửa ăn quà vặt như hạng em (vì hạng em thì còn gìn giữ làm đếch gì)! Chúng đi đâu cũng diện xe, mà rất ít khi các ông bắt gặp người ta ra hay vào cái nhà số đỏ đấy nhé! Hễ trông thấy những ả ấy ngoài đường, trong hội chợ, trong các cuộc chợ phiên, các ông cứ tin đứt đó là những nữ học sinh đi thôi! Cho nên đã bao nhiêu chàng công tử đi bắt nhân tình với gái đã cầm giấy, mà cứ tưởng là chim được những tiểu thư khuê các!
 
 ---
 
@@ -1494,33 +1494,33 @@ Tuy đối với pháp luật, thị Yến đã là kỹ nữ chính thức, son
 
 Tôi hỏi:
 
-- Thế ra em không sợ "cầm giấy" thì là hỏng cả một đời rồi?
+-- Thế ra em không sợ "cầm giấy" thì là hỏng cả một đời rồi?
 
-- Hề gì cái ấy? Trái lại nữa thì có. Em vẫn kiếm tiền được như trước, mà lại không phải lôi thôi với những đội con gái. Em còn hy vọng có phen được làm nhân tình với những khách làng chơi người Tây. Em rất ham muốn cái địa vị của những chị em trong nghề mà tốt số hơn em. Chỉ có Nam nhân Nam quốc (?) với nhau mà lại đi khinh bỉ người có giấy thôi, chứ người Tây thì lại cho rằng chơi gái có giấy mới thật là chắc chắn.
+-- Hề gì cái ấy? Trái lại nữa thì có. Em vẫn kiếm tiền được như trước, mà lại không phải lôi thôi với những đội con gái. Em còn hy vọng có phen được làm nhân tình với những khách làng chơi người Tây. Em rất ham muốn cái địa vị của những chị em trong nghề mà tốt số hơn em. Chỉ có Nam nhân Nam quốc (?) với nhau mà lại đi khinh bỉ người có giấy thôi, chứ người Tây thì lại cho rằng chơi gái có giấy mới thật là chắc chắn.
 
 Tôi lại hỏi nữa:
 
-- Thế cái lúc em cầm giấy thì nó thế nào?
+-- Thế cái lúc em cầm giấy thì nó thế nào?
 
 Thị Yến vẫn đáp ngây thơ:
 
-- Thì em đi với đội con gái sang bên Sở Mật Thám để lấy căn cước, chụp ảnh, nhà đo...
+-- Thì em đi với đội con gái sang bên Sở Mật Thám để lấy căn cước, chụp ảnh, nhà đo...
 
-- Không, nhưng mà em nghĩ ngợi thế nào?
+-- Không, nhưng mà em nghĩ ngợi thế nào?
 
 Đáng lẽ đáp, thị Yến lại hỏi tôi:
 
-- Em nghĩ thế nào?
+-- Em nghĩ thế nào?
 
-- Ừ. Em có cảm tưởng gì không? Em không biết rằng thế là em đã bị liệt vào hạng người không cùng sống cái cuộc đời của những người khác? Em không tiếc gì cả? Không lo sợ gì cả? Em không biết rằng đã cầm giấy thì là thôi, rất khó lòng mà lấy được người chồng hẳn hoi, vì nghe thiên hạ nói, "xé giấy" cho một người gái thanh lâu là khó lắm...
+-- Ừ. Em có cảm tưởng gì không? Em không biết rằng thế là em đã bị liệt vào hạng người không cùng sống cái cuộc đời của những người khác? Em không tiếc gì cả? Không lo sợ gì cả? Em không biết rằng đã cầm giấy thì là thôi, rất khó lòng mà lấy được người chồng hẳn hoi, vì nghe thiên hạ nói, "xé giấy" cho một người gái thanh lâu là khó lắm...
 
 Đến đây, thị Lành nói chen vào:
 
-- Cô nó cầm giấy là tội tôi, về cái nhà mụ chủ của tôi cũng là công tôi. Tuy mới bị bắt về lục xì có một lần nghĩa là cũng vẫn còn tự do đấy, nhưng mà ra rồi thì biết làm gì mà chẳng cầm giấy quách?
+-- Cô nó cầm giấy là tội tôi, về cái nhà mụ chủ của tôi cũng là công tôi. Tuy mới bị bắt về lục xì có một lần nghĩa là cũng vẫn còn tự do đấy, nhưng mà ra rồi thì biết làm gì mà chẳng cầm giấy quách?
 
-- Thế còn những ả chưa đến lúc phải cầm giấy và được thả khỏi lục xì, thì thường thường ra sao?
+-- Thế còn những ả chưa đến lúc phải cầm giấy và được thả khỏi lục xì, thì thường thường ra sao?
 
-- Nhà nước cũng dặn họ qua loa rằng phải chừa đi, không được lén lút mãi nữa, lần sau bị bắt nữa sẽ phải cầm giấy. Xưa kia, người ta tử tế hơn nữa. Đứa nào muốn về làng thì nhà nước cho người giải về tận làng. Nhưng mà, thường ra, cha mẹ ở nhà quê mấy khi còn muốn nhận những đứa con yêu tinh như thế nữa! Cái khoản phí tổn ấy chẳng ai chịu, về sau cái lệ giải những cô gái quê trụy lạc về tận nguyên quán để giao cho bố mẹ cũng thôi.
+-- Nhà nước cũng dặn họ qua loa rằng phải chừa đi, không được lén lút mãi nữa, lần sau bị bắt nữa sẽ phải cầm giấy. Xưa kia, người ta tử tế hơn nữa. Đứa nào muốn về làng thì nhà nước cho người giải về tận làng. Nhưng mà, thường ra, cha mẹ ở nhà quê mấy khi còn muốn nhận những đứa con yêu tinh như thế nữa! Cái khoản phí tổn ấy chẳng ai chịu, về sau cái lệ giải những cô gái quê trụy lạc về tận nguyên quán để giao cho bố mẹ cũng thôi.
 
 Tôi muốn biết những cảm tưởng của người đàn bà khi mới bắt đầu làm đệ tử chính thức của thần Bạch My...
 
@@ -1548,11 +1548,11 @@ Tôi đọc cái tin ấy cho thị Lành và thị Yến cùng nghe. Tôi chờ
 
 Thị Yến gật gù bảo thị Lành:
 
-- Thế thì đích đấy! Vú già đưa cơm cũng có nói rằng trong đít-băng-xe[^119] có chuyện ấy, mới ban sáng hôm nay thôi.
+-- Thế thì đích đấy! Vú già đưa cơm cũng có nói rằng trong đít-băng-xe[^119] có chuyện ấy, mới ban sáng hôm nay thôi.
 
 Và thị Lành thản nhiên bảo tôi:
 
-- Phải lắm. Đi trốn thì bị bắt, dầu rằng là trốn đã mười năm hay năm năm. Ai bảo không xé giấy! Bị bắt là phải, còn kêu cái nỗi gì!
+-- Phải lắm. Đi trốn thì bị bắt, dầu rằng là trốn đã mười năm hay năm năm. Ai bảo không xé giấy! Bị bắt là phải, còn kêu cái nỗi gì!
 
 Cái tin vặt kia khiến tôi nghĩ ngợi mãi... Tôi nhớ đến chuyện anh tù vượt ngục Jean Valjean, khi đã làm đến chức xã trưởng[^120] rồi, mới lại bị pháp luật hỏi đến tội vượt ngục cũ. Tôi ngạc nhiên vô cùng, khi thấy một việc như thế mà cũng chẳng đủ gây một mối bất bình nào cho hai người kỹ nữ nằm cạnh tôi. Nhưng mà rồi tôi cũng hiểu rõ ngay. Ở đời này, bất cứ vào hạng nào, cái công lệ thiên nhiên bất di bất dịch nó là thế này: không ai muốn cho ai "khá" cả!
 
@@ -1566,13 +1566,13 @@ Ngày hôm ấy, ngoài số hơn chục người đàn ông và đàn bà mà q
 
 Khi ông thầy thuốc Quỳnh mở cửa phòng giấy bước ra để xem cái số những nạn nhân của sự thiếu vệ sinh đến cầu cứu thành phố ra sao, thì ông để ý đến thiếu niên kia trước nhất. Lẽ đời là thế, người có quần áo tử tế, bất cứ ở đâu, bất cứ vào lúc nào, cũng vẫn được coi hơn. Thấy được vẫy lại, thiếu niên đứng ngay lên, nói một cách ngượng nghịu:
 
-- Thưa ngài, chúng tôi muốn được vào hầu quan chánh, Giám đốc nhà lục xì.
+-- Thưa ngài, chúng tôi muốn được vào hầu quan chánh, Giám đốc nhà lục xì.
 
-- Để làm gì? Xin việc hay xin chữa bệnh?
+-- Để làm gì? Xin việc hay xin chữa bệnh?
 
-- Bẩm... chúng tôi có việc riêng.
+-- Bẩm... chúng tôi có việc riêng.
 
-- Tôi đây vẫn tiếp khách thay quan chánh.
+-- Tôi đây vẫn tiếp khách thay quan chánh.
 
 Người thiếu niên ấy, sau khi trù trừ hồi lâu, liền đưa ra lá đơn. Ông thầy thuốc Quỳnh, sau khi nhìn vào tập giấy có sáu trang, bèn gọi mấy người khán hộ dưới quyền mình để khám xét bọn bệnh nhân áo quần lam lũ kia, rồi cho thiếu niên vào phòng, sau khi khép cửa lại kỹ lưỡng.
 
@@ -1592,47 +1592,47 @@ Thoạt kỳ thủy, người ta yêu nhau một cách vô tội y như trong nh
 
 Thì, năm giờ sáng hôm sau, lúc anh chị vừa đi khỏi nhà săm được vài chục thước, một người đội con gái đã đứng rình ở một gốc cây chẳng biết từ bao giờ, chạy xộc đến, mời người thiếu nữ đi theo mình về cái nơi mà thầy ta có cái nhã ý chỉ nói một cách mập mờ là về "sở". Người nhân tình, sau khi phản đối rất kịch liệt chỉ được một câu đáp như thế này:
 
-- Không việc gì đến xừ[^121]. Người đàn bà này mại dâm lậu thuế! Tôi là người nhà nước, tôi có bổn phận phải bắt hạng người ấy! Xừ nên biết rằng xừ đã là người đàn ông thứ tư!
+-- Không việc gì đến xừ[^121]. Người đàn bà này mại dâm lậu thuế! Tôi là người nhà nước, tôi có bổn phận phải bắt hạng người ấy! Xừ nên biết rằng xừ đã là người đàn ông thứ tư!
 
-- Tôi phản đối đấy! Tôi cam đoan rằng ông lạm quyền, trái phép! Chúng tôi không phải hạng vô học thức, cắn hột cơm không vỡ mà ông đòi bắt nạt! Ông coi chừng không chúng tôi kiện lên quan trên cho mà xem! Ông phải bỏ người đàn bà này ra ngay! Người đàn bà này không những chẳng hề có mại dâm lậu thuế bao giờ, mà còn là vợ chưa cưới của tôi nữa!
+-- Tôi phản đối đấy! Tôi cam đoan rằng ông lạm quyền, trái phép! Chúng tôi không phải hạng vô học thức, cắn hột cơm không vỡ mà ông đòi bắt nạt! Ông coi chừng không chúng tôi kiện lên quan trên cho mà xem! Ông phải bỏ người đàn bà này ra ngay! Người đàn bà này không những chẳng hề có mại dâm lậu thuế bao giờ, mà còn là vợ chưa cưới của tôi nữa!
 
 Nhưng người đội con gái chỉ bĩu mồm, bình tĩnh đáp:
 
-- Xừ muốn đi kiện cứ việc đi mà kiện! Nếu xừ cắn vỡ hột cơm thì xừ cứ việc đi mà cắn vỡ hột cơm! Này tôi bảo thật xừ biết: tôi có đủ chứng cớ thế nào thì tôi mới dám bắt! Dễ những xếp của tôi lại đi dung túng cho chúng tôi đi bắt những người lương thiện đấy hẳn! Rồi xừ sẽ đi kiện nay mai, nhưng mà ngay bây giờ, thì tôi phải giải người đàn bà này về nhà lục xì!
+-- Xừ muốn đi kiện cứ việc đi mà kiện! Nếu xừ cắn vỡ hột cơm thì xừ cứ việc đi mà cắn vỡ hột cơm! Này tôi bảo thật xừ biết: tôi có đủ chứng cớ thế nào thì tôi mới dám bắt! Dễ những xếp của tôi lại đi dung túng cho chúng tôi đi bắt những người lương thiện đấy hẳn! Rồi xừ sẽ đi kiện nay mai, nhưng mà ngay bây giờ, thì tôi phải giải người đàn bà này về nhà lục xì!
 
 Thiếu nữ vẫn cứ cúi mặt khóc, bàn tay ẻo lả còn gượng vùng khỏi sự túm chặt của người đội con gái. Nhưng hai ba anh phu xe đã đỗ xe chung quanh ba người. Thầy đội con gái lôi thiếu nữ lên cùng ngồi với mình một xe. Cái xe đạp của thầy "ngồi" một mình trên một chiếc xe cao su khác. Hai chiếc xe ấy chạy vụt, để lại thiếu niên đứng tần ngần, trơ trẽn, giữa hai anh phu xe đêm.
 
 Một anh phu xe hót ngay:
 
-- Cậu có muốn kiện thì cứ việc đến Sở Mật Thám, con xin kéo ngay.
+-- Cậu có muốn kiện thì cứ việc đến Sở Mật Thám, con xin kéo ngay.
 
 Anh phu kia, không cầu lợi ở một cuốc xe, gạt đi:
 
-- Cậu phải đi tìm ông chánh nhà lục xì! Cái việc này con đã biết...
+-- Cậu phải đi tìm ông chánh nhà lục xì! Cái việc này con đã biết...
 
 Thiếu niên hỏi:
 
-- Ông chánh nhà lục xì ở nhà lục xì?
+-- Ông chánh nhà lục xì ở nhà lục xì?
 
-- Không! Ở Sở Đốc lý ấy, chỗ trên gác sở thuế thân ấy! Quan chánh thì con biết lắm! Quan cũng có khi đi xe giờ cả đêm, lùng hết các hang cùng ngõ hẻm để dò xét công việc của bọn đội con gái...
+-- Không! Ở Sở Đốc lý ấy, chỗ trên gác sở thuế thân ấy! Quan chánh thì con biết lắm! Quan cũng có khi đi xe giờ cả đêm, lùng hết các hang cùng ngõ hẻm để dò xét công việc của bọn đội con gái...
 
 Biết vậy rồi, thiếu niên ấy quay lại nhà săm. Tội nghiệp! Thì ra cái tai họa kia nó đến một cách bất kỳ quá, phũ phàng quá đến nỗi anh chàng đâm hoảng, và không còn tín nhiệm người yêu của mình nữa. Anh chàng gọi bồi săm, cho tiền rồi dò hỏi:
 
-- Thế nào? Cái "cảnh" vừa rồi mà lại là một dân xưa nay vẫn đi ngang?
+-- Thế nào? Cái "cảnh" vừa rồi mà lại là một dân xưa nay vẫn đi ngang?
 
 Cũng như đa số những bồi săm khôn ngoan và biết
 
 tự trọng khác, anh bồi săm này lắc đầu ngay:
 
-- Con không biết!
+-- Con không biết!
 
-- Người đàn bà ấy vào đây lần này là mấy lần?
+-- Người đàn bà ấy vào đây lần này là mấy lần?
 
-- Ai nhớ mặt được mà biết? Dễ mới có một lần.
+-- Ai nhớ mặt được mà biết? Dễ mới có một lần.
 
-- Nói láo? Một lần sao đã bị bắt?
+-- Nói láo? Một lần sao đã bị bắt?
 
-- Nhưng mà đã vào săm khác vài ba lần thì ai biết đâu? Con tưởng thiện nhân hay gái ăn sương thì cậu, cậu đã ăn nằm với người ta, ắt cậu phải hiểu...
+-- Nhưng mà đã vào săm khác vài ba lần thì ai biết đâu? Con tưởng thiện nhân hay gái ăn sương thì cậu, cậu đã ăn nằm với người ta, ắt cậu phải hiểu...
 
 Thế là buổi rạng đông hôm ấy, một tên bồi săm vô học đã dạy một bài học hữu ích cho một cậu học sinh sắp đi thi bằng Thành Chung[^122]. Ô! Thì ra người ta chẳng nên nhắm mắt lại mà tin bọn phụ nữ.
 
@@ -1646,19 +1646,19 @@ Mặc dầu đã giữ cái chức ấy từ lâu, ông thầy thuốc Nguyễn 
 
 Cái vẻ học trò của người đệ đơn, những lời trần tình qua một giọng đau đớn, sự cắt nghĩa rành mạch mọi trường hợp của người đàn bà có thể bị bắt oan, khiến ông Nguyễn Huy Quỳnh bận tâm lắm. Vả lại, không dám tin ở sự thanh liêm hoàn toàn của những đội con gái cho lắm, cũng như những "quan thầy" của mình, ông Quỳnh bèn hứa với người nhân tình gặp vận xúi ấy là sẽ phân trần mọi lẽ lên bác sĩ Joyeux.
 
-- Thôi được, hôm nay quan chánh còn bận họp hội đồng bên quan Đốc lý, vậy ngày mai thì cậu đến đây, vào chín giờ, tôi sẽ thưa giúp cho vài lời để xem quan chánh quyết định ra sao.
+-- Thôi được, hôm nay quan chánh còn bận họp hội đồng bên quan Đốc lý, vậy ngày mai thì cậu đến đây, vào chín giờ, tôi sẽ thưa giúp cho vài lời để xem quan chánh quyết định ra sao.
 
-- Bẩm thế nghĩa là vợ chưa cưới của tôi lại phải ở trong lục xì mất đêm hôm nay nữa?
+-- Bẩm thế nghĩa là vợ chưa cưới của tôi lại phải ở trong lục xì mất đêm hôm nay nữa?
 
-- Điều ấy không thể tránh được! Nhưng cậu cứ yên tâm, nếu khám thấy người đàn bà ấy vô bệnh thì người ta sẽ tha ra chứ không hề gì, trừ phi bị bắt lần này là lần thứ nhì thì không kể...
+-- Điều ấy không thể tránh được! Nhưng cậu cứ yên tâm, nếu khám thấy người đàn bà ấy vô bệnh thì người ta sẽ tha ra chứ không hề gì, trừ phi bị bắt lần này là lần thứ nhì thì không kể...
 
-- Bẩm... giả dụ đã là lần thứ nhì thì sao?
+-- Bẩm... giả dụ đã là lần thứ nhì thì sao?
 
-- Thì phải cầm giấy...
+-- Thì phải cầm giấy...
 
-- !...
+-- !...
 
-- Trừ phi có người đứng ra nhận xé giấy cho thì không kể...
+-- Trừ phi có người đứng ra nhận xé giấy cho thì không kể...
 
 Thiếu niên cảm tạ rồi vái chào.
 
@@ -1666,55 +1666,55 @@ Thiếu niên cảm tạ rồi vái chào.
 
 Nhưng bác sĩ Joyeux ngăn người giúp việc của mình lại:
 
-- Ông chớ nên quá giàu tình cảm và quá tin... Nếu ông mà là quan tòa thì không một đứa kẻ cắp nào mà lại không oan uổng, vì đứa kẻ cắp lành nghề nào cũng biết lạy van khóc mếu, và kêu mình oan uổng. Người đàn bà bị bắt này là đáng nghi lắm, vì rằng một phụ nữ hoàn toàn lương thiện thì chẳng có đời nào lại vào săm...
+-- Ông chớ nên quá giàu tình cảm và quá tin... Nếu ông mà là quan tòa thì không một đứa kẻ cắp nào mà lại không oan uổng, vì đứa kẻ cắp lành nghề nào cũng biết lạy van khóc mếu, và kêu mình oan uổng. Người đàn bà bị bắt này là đáng nghi lắm, vì rằng một phụ nữ hoàn toàn lương thiện thì chẳng có đời nào lại vào săm...
 
-- Nhưng mà người có đơn thưa đã khai mình là chồng chưa cưới...
+-- Nhưng mà người có đơn thưa đã khai mình là chồng chưa cưới...
 
-- Tôi tưởng một người đàn bà biết tự trọng và hoàn toàn lương thiện thì chẳng có đời nào đi ngủ săm, dẫu rằng là đi với chồng chính thức nữa! Tuy nhiên đã có đơn khiếu nại ta cũng nên sẵn lòng tra xét cho kỹ. Để tôi hỏi ngạch cảnh sát xướng kỹ xem sao...
+-- Tôi tưởng một người đàn bà biết tự trọng và hoàn toàn lương thiện thì chẳng có đời nào đi ngủ săm, dẫu rằng là đi với chồng chính thức nữa! Tuy nhiên đã có đơn khiếu nại ta cũng nên sẵn lòng tra xét cho kỹ. Để tôi hỏi ngạch cảnh sát xướng kỹ xem sao...
 
 Rồi bác sĩ cầm đến ống điện thoại. Nửa giờ sau, bác sĩ đã có một tập giấy _lập bô_ trước bàn. Thì ra thiếu nữ bị bắt nọ đã vào bốn nhà săm khác nhau với bốn chàng thanh niên cũng khác nhau, trong khoảng mười một tháng nay. Trong biên bản, thiếu nữ ấy vào những săm nào, ở ngõ nào, phố nào, ngày nào, giờ nào, do thám tử nào dò xét, do những tên bồi nào làm chứng, những điều ấy kê khai một cách khá rành mạch. Những tên bồi săm vẫn rình mò những gái lương thiện quá dại dột để có thể xô đẩy những cô ả ngứa nghề ấy vào vòng trụy lạc, đã chẳng ngại gì giúp đỡ ban đội con gái bằng cái tư cách những tay chỉ điểm tập sự không lương!
 
 Cho nên người đội con gái mang tập _lập bô_ sang cho ông Giám đốc nhà lục xì, đã cứng cỏi nhờ ông đốc Quỳnh thông ngôn lên:
 
-- Bẩm quan lớn, nếu có kiện bắt trái phép con xin gọi ngay những tên bồi săm đã mục kích đến đây, làm chứng trước mặt người đệ đơn kiện.
+-- Bẩm quan lớn, nếu có kiện bắt trái phép con xin gọi ngay những tên bồi săm đã mục kích đến đây, làm chứng trước mặt người đệ đơn kiện.
 
 Bác sĩ Joyeux kêu:
 
-- Thôi, cảm ơn, được rồi.
+-- Thôi, cảm ơn, được rồi.
 
 ---
 
 Chàng thư sinh kia, hôm sau được yết kiến bác sĩ Joyeux.
 
-- Ông nên rút đơn về thì hơn. Khi Sở Mật Thám đã làm một việc gì thì ít khi sở ấy để cho người khác kiện được. Tôi khuyên ông vậy là muốn ông tránh khỏi một sự lôi thôi to, vì ông có thể bị liên lụy về vụ kiện này...
+-- Ông nên rút đơn về thì hơn. Khi Sở Mật Thám đã làm một việc gì thì ít khi sở ấy để cho người khác kiện được. Tôi khuyên ông vậy là muốn ông tránh khỏi một sự lôi thôi to, vì ông có thể bị liên lụy về vụ kiện này...
 
 Tuy đã bị xúc cảm mạnh, người thư sinh cũng đủ cái hùng hồn để phụng sự tình ái:
 
-- Thưa Ngài, tôi không dám tin cái lẽ mại dâm lậu thuế, vì người ấy là vợ tôi.
+-- Thưa Ngài, tôi không dám tin cái lẽ mại dâm lậu thuế, vì người ấy là vợ tôi.
 
-- Thế giấy giá thú của vợ chồng ông đâu?
+-- Thế giấy giá thú của vợ chồng ông đâu?
 
-- Tôi xin lỗi... đó là vị hôn thê của tôi...
+-- Tôi xin lỗi... đó là vị hôn thê của tôi...
 
 Bác sĩ Joyeux cắt ngay:
 
-- Xin lỗi! Nếu quả đó là vị hôn thê của ông thật, thì ông đã làm một việc mà Sở Cảnh sát dung túng nhưng mà Luân Lý chẳng bao dung! Không ai lại đi ngủ săm với vợ chưa cưới như thế! Mà một người đàn bà đã có thể cùng ông vào một nơi ô uế như thế, thì cũng có thể làm cái việc ấy với những đàn ông khác nữa. Nếu ông không là người bố hay người đỡ đầu của thiếu nữ ấy thì ông chẳng có quyền gì đệ đơn kiện.
+-- Xin lỗi! Nếu quả đó là vị hôn thê của ông thật, thì ông đã làm một việc mà Sở Cảnh sát dung túng nhưng mà Luân Lý chẳng bao dung! Không ai lại đi ngủ săm với vợ chưa cưới như thế! Mà một người đàn bà đã có thể cùng ông vào một nơi ô uế như thế, thì cũng có thể làm cái việc ấy với những đàn ông khác nữa. Nếu ông không là người bố hay người đỡ đầu của thiếu nữ ấy thì ông chẳng có quyền gì đệ đơn kiện.
 
-- Thưa Ngài, tôi xin cam đoan rằng người ấy không mại dâm...
+-- Thưa Ngài, tôi xin cam đoan rằng người ấy không mại dâm...
 
-- Sở Cảnh sát không những phải đàn áp nạn mại dâm lậu thuế mà còn phải ngăn ngừa những bệnh hoa liễu nữa. Không mại dâm, người ta có thể gieo rắc nọc phong tình cho kẻ khác được lắm.
+-- Sở Cảnh sát không những phải đàn áp nạn mại dâm lậu thuế mà còn phải ngăn ngừa những bệnh hoa liễu nữa. Không mại dâm, người ta có thể gieo rắc nọc phong tình cho kẻ khác được lắm.
 
 Đến đây, thiếu niên đứng đờ người, cúi mặt xuống, hoàn toàn thất vọng.
 
 Ông Giám đốc của phúc đường cũng động tâm, bèn an ủi:
 
-- Nhưng mà ông cứ yên tâm. Người đàn bà của ông, nếu chưa mắc bệnh thì sẽ được tha, vì chưa phải đến lúc bị bắt làm kỹ nữ để mà ông phải lo xin xé giấy hộ. Còn nếu có bệnh thì chỉ bị giam cho đến lúc chữa khỏi bệnh thì rồi cũng được tha. Ông nên kiên tâm một chút...
+-- Nhưng mà ông cứ yên tâm. Người đàn bà của ông, nếu chưa mắc bệnh thì sẽ được tha, vì chưa phải đến lúc bị bắt làm kỹ nữ để mà ông phải lo xin xé giấy hộ. Còn nếu có bệnh thì chỉ bị giam cho đến lúc chữa khỏi bệnh thì rồi cũng được tha. Ông nên kiên tâm một chút...
 
-- Thưa Ngài, một thiếu nữ bị bắt vào lục xì là đã đủ nhục nhã lắm. Vậy ra không còn cách gì xin tha ngay người ấy ra khỏi cái "mỏ vịt"?
+-- Thưa Ngài, một thiếu nữ bị bắt vào lục xì là đã đủ nhục nhã lắm. Vậy ra không còn cách gì xin tha ngay người ấy ra khỏi cái "mỏ vịt"?
 
 Bác sĩ Joyeux dõng dạc:
 
-- Có lắm. Nếu chính người bố hay người đỡ đầu của thiếu nữ ấy đem đơn đến đây kêu xin, và cam đoan với nhà nước là sẽ dạy dỗ và ngăn giữ thiếu nữ ấy trong con đường của thuần phong mỹ tục. Còn như ông, vị hôn phu thôi, thì không có quyền.
+-- Có lắm. Nếu chính người bố hay người đỡ đầu của thiếu nữ ấy đem đơn đến đây kêu xin, và cam đoan với nhà nước là sẽ dạy dỗ và ngăn giữ thiếu nữ ấy trong con đường của thuần phong mỹ tục. Còn như ông, vị hôn phu thôi, thì không có quyền.
 
 Thiếu niên đứng lặng im... Khi một cô chiêu của mình đi ngủ săm, rồi bị bắt vào lục xì, thì liệu có ông bố nào còn đủ can đảm vác cái mặt mo đến kêu xin điều gì trước bàn giấy nhà chuyên trách nữa! Cho nên người tình nhân xấu số ấy đành xin rút đơn.
 
@@ -1750,13 +1750,13 @@ Hai người yêu nhau bắt đầu là trong một vũng bùn, cái đó đã c
 
 Untel, cũng như trăm nghìn kẻ nam nhi rộng lượng khác, một khi đã yêu thì không thể nào lại không ghen tuông. Ghen với một người đàn bà làm cái nghề "của chung mọi người" là vô lý lắm, nhưng ở đây, ta không thể nói chuyện nghĩa lý với Untel được! Thiên hạ đồn rằng không đêm nào, từ chín giờ đến mười một giờ, Untel từ trại ra, mà lại không đến nhà thanh lâu để ngồi một chỗ, lừ lừ nhìn những khách làng chơi, da vàng, da trắng, da đen, ám ảnh mụ chủ, càu nhàu với nhân tình, làm trở ngại cho sự "làm ăn buôn bán". Đã có lần anh chàng si tình gây sự đánh nhau với những lính tráng khác. Không chịu nổi nữa, một hôm, Tú Bà 1937, chủ nhà ấy, xỉa xói vào mặt Untel, nói như thế này:
 
-- _Phút moa la căng! Toa na ba đoa rét lê cẩm xà, đề răng dê lê dốt! Toa bố cu e mê en, nét xì bá?_[^129]
+-- _Phút moa la căng! Toa na ba đoa rét lê cẩm xà, đề răng dê lê dốt! Toa bố cu e mê en, nét xì bá?_[^129]
 
-- _A lò, mè băng ta cẩm phăm!_[^130]
+-- _A lò, mè băng ta cẩm phăm!_[^130]
 
 Thiên Kim cũng nói:
 
-- _A mi! Ma ri loa a véc moa!_[^131]
+-- _A mi! Ma ri loa a véc moa!_[^131]
 
 Ồ, thì ra cái việc dễ như thế mà anh chàng nghĩ mãi không ra! Phải rồi, lấy quách thì thôi, chẳng còn sợ tổn thọ vì ghen tuông mãi. Hôm sau, Untel đến Sở Cảnh sát với một lá đơn...
 
@@ -1764,75 +1764,75 @@ Giá dụ như người khác, bằng lòng lấy hẳn, bằng lòng làm phép
 
 Khi nhận được cái danh thiếp xin vào, vì đã có tờ trình của Sở Cảnh sát báo trước, bác sĩ Joyeux cho người tùy phái ra nói:
 
-- Sáng hôm nay, ông Giám đốc bận việc nên không tiếp khách.
+-- Sáng hôm nay, ông Giám đốc bận việc nên không tiếp khách.
 
 Đến chiều, Untel lại đến. Anh ta bảo người tùy phái:
 
-- Tôi là nhà binh, xin được phép nghỉ khó lắm, anh nói hộ cho ông Giám đốc nên cố bớt thời giờ tiếp tôi, cảm ơn.
+-- Tôi là nhà binh, xin được phép nghỉ khó lắm, anh nói hộ cho ông Giám đốc nên cố bớt thời giờ tiếp tôi, cảm ơn.
 
 Nhưng người tùy phái đã được dặn trước... Tuy ông Joyeux đương ngồi bên trong cánh cửa, người tùy phái cũng cứ nói:
 
-- Nhưng ông ấy có ở phòng giấy đâu! Hôm nay ông ấy bận dạy học ở trường Cao đẳng. Chiều mai mời ông quay lại lần nữa.
+-- Nhưng ông ấy có ở phòng giấy đâu! Hôm nay ông ấy bận dạy học ở trường Cao đẳng. Chiều mai mời ông quay lại lần nữa.
 
 Sau khi càu nhàu một cách vô công hiệu, Untel lại đành ra về. Khi thuật lại chuyện này, bác sĩ Joyeux cắt nghĩa cho tôi: "Tôi phải làm khó khăn phiền nhiễu cho họ để dò xét cái tâm lý họ ra sao. Nếu họ thành tâm yêu nhau thì phiền nhiễu đến bậc nào họ cũng cam lòng quay lại. Còn nếu họ không trở lại thì đó cũng là may cho họ, vì chưa chi họ đã nản một việc nhỏ, ắt họ cũng chẳng kiên tâm được việc lớn, nhất là khi hôn sự chỉ là một cuộc hỗn hợp của hai tính tình trái ngược phải dằn lòng chịu đựng lẫn nhau. Đa số binh lính lấy kỹ nữ làm vợ là vì say rượu, là vì cao hứng chốc lát... Như vậy, lấy nhau dễ, họ bỏ nhau cũng dễ, và chẳng mấy lúc ta lại thấy cô ả vừa lộn vòng lại phải quay đầu về con đường mại dâm".
 
 Bốn hôm sau nữa, Untel mới xin được phép mới đến Tòa đốc lý. Khi thấy cái mặt trẻ măng ấy, bác sĩ Joveux sơ ngay cho cái nông nổi của anh chàng... Nhưng Untel muốn chừng đã đi lục đạo nghị định Rivet.
 
-- Thưa Ngài, bản chức không thể nào xóa tên ả ấy ngay được.
+-- Thưa Ngài, bản chức không thể nào xóa tên ả ấy ngay được.
 
-- Thưa ngài, hạng phụ nữ bản xứ liệu có đáng tin cậy lắm không mà nhà nước lại bắt người xin xé giấy phải làm ngay phép cưới? Chúng tôi cần phải hiểu nhau đã, và muốn hiểu nhau, cần phải được ăn ở với nhau ít lâu... Xin ngài châm trước cho, vì châm chước một đạo nghị định là sự vẫn có thể được.
+-- Thưa ngài, hạng phụ nữ bản xứ liệu có đáng tin cậy lắm không mà nhà nước lại bắt người xin xé giấy phải làm ngay phép cưới? Chúng tôi cần phải hiểu nhau đã, và muốn hiểu nhau, cần phải được ăn ở với nhau ít lâu... Xin ngài châm trước cho, vì châm chước một đạo nghị định là sự vẫn có thể được.
 
 Bác sĩ Joyeux bèn thương lượng:
 
-- Hay là để bản chức châm trước thế này: tuy chưa được xóa tên hẳn, nhưng người đàn bà ấy sẽ được hưởng sự tự do tạm trong ba tháng, không phải đến phúc đường, không phải ở nhà thanh lâu, không phải tuân theo luật lệ quy định nghề mại dâm... Nếu sau ba tháng... tập sự, xin lỗi, nếu bản chức có thể nói được thế, mà xem chừng hai người lấy nhau được, thì sẽ đi khai giấy giá thú, và bản chức sẽ cho lệnh xóa tên hẳn.
+-- Hay là để bản chức châm trước thế này: tuy chưa được xóa tên hẳn, nhưng người đàn bà ấy sẽ được hưởng sự tự do tạm trong ba tháng, không phải đến phúc đường, không phải ở nhà thanh lâu, không phải tuân theo luật lệ quy định nghề mại dâm... Nếu sau ba tháng... tập sự, xin lỗi, nếu bản chức có thể nói được thế, mà xem chừng hai người lấy nhau được, thì sẽ đi khai giấy giá thú, và bản chức sẽ cho lệnh xóa tên hẳn.
 
 Untel lắc đầu mà rằng:
 
-- Chúng tôi xin là xin xé giấy hẳn.
+-- Chúng tôi xin là xin xé giấy hẳn.
 
 Bác sĩ Joyeux:
 
-- Nhà nước không thể làm vui lòng ông được.
+-- Nhà nước không thể làm vui lòng ông được.
 
 Untel bèn đứng lên, giở đến giọng pháp luật:
 
-- Thưa ngài, tôi có quyền xin xé giấy, và phải được, vì tôi nhớ ra rằng điều thứ 8 trong nghị định 3 Février 1921[^132] chỉ nói rằng một kỹ nữ có thể xin xé giấy được, khi có người nào danh giá cần dùng đến, và khi nào người danh giá ấy có đủ tư cách nuôi nổi gái ấy, thế thôi. Trong đạo nghị định không có buộc người xin xóa tên phải lấy hẳn gái đĩ làm vợ, thì chúng tôi muốn biết vì lẽ gì ngài cứ bắt tôi khai giá thú!
+-- Thưa ngài, tôi có quyền xin xé giấy, và phải được, vì tôi nhớ ra rằng điều thứ 8 trong nghị định 3 Février 1921[^132] chỉ nói rằng một kỹ nữ có thể xin xé giấy được, khi có người nào danh giá cần dùng đến, và khi nào người danh giá ấy có đủ tư cách nuôi nổi gái ấy, thế thôi. Trong đạo nghị định không có buộc người xin xóa tên phải lấy hẳn gái đĩ làm vợ, thì chúng tôi muốn biết vì lẽ gì ngài cứ bắt tôi khai giá thú!
 
 Bác sĩ Joyeux cười nhạt:
 
-- Xin lỗi! Ông nhớ đạo luật ấy, bản chức cũng nhớ lắm. Nhưng mà ông quên điều này: ông quên ông là nhà binh! Ông lại không hiểu rằng có câu nói về "người xin xóa tên chỉ cần đủ tư cách nuôi nổi người đàn bà thôi", ấy là vì nhà nước muốn rộng rãi đối với bố mẹ hay người đỡ đầu, để họ có thể đến xin cưới con gái hay người được che chở, để cho kỹ nữ ấy làm lại cuộc đời, thoát vòng trụy lạc... Một khi ông không là bố mẹ hay người đỡ đầu của người đàn bà tên là Thiên Kim này, ông lại không muốn cưới hẳn người ta làm vợ thì ông không có quyền gì xin xóa tên ấy trong sổ mại dâm! Bản chức cam đoan với ông như thế.
+-- Xin lỗi! Ông nhớ đạo luật ấy, bản chức cũng nhớ lắm. Nhưng mà ông quên điều này: ông quên ông là nhà binh! Ông lại không hiểu rằng có câu nói về "người xin xóa tên chỉ cần đủ tư cách nuôi nổi người đàn bà thôi", ấy là vì nhà nước muốn rộng rãi đối với bố mẹ hay người đỡ đầu, để họ có thể đến xin cưới con gái hay người được che chở, để cho kỹ nữ ấy làm lại cuộc đời, thoát vòng trụy lạc... Một khi ông không là bố mẹ hay người đỡ đầu của người đàn bà tên là Thiên Kim này, ông lại không muốn cưới hẳn người ta làm vợ thì ông không có quyền gì xin xóa tên ấy trong sổ mại dâm! Bản chức cam đoan với ông như thế.
 
 Untel đứng đờ người như chết đứng. Mồ hôi chảy ra đã ướt cả trán, anh chàng sau cùng phải xin lỗi ông Joyeux. Và xin về "nghĩ ngợi cho kỹ" để rồi sẽ đến... thụ giáo. Cái máu ghen, trước khiến anh đa nghi thì sau bắt anh phải quyết định. Nửa tháng sau, anh khai giá thú cho Thiên Kim trước tòa.
 
 Bác sĩ Joyeux phân trần với tôi:
 
-- Một người lính Pháp cưới một cô kỹ nữ bản xứ làm vợ theo đúng luật, vẫn biết thế cũng chẳng lợi gì cho nước Pháp, nhưng mà cũng đỡ được một mối hại về hoa liễu, đỡ được một người trong đạo binh gái mại dâm. Nếu quá dễ dãi với họ, thì chỉ vài tháng là anh đàn ông bỏ vợ, chị đàn bà lại quay về trụy lạc, nếu không bị chính anh chồng buộc mình phải mại dâm để nuôi thêm anh đĩ đực (gigolo) nữa.
+-- Một người lính Pháp cưới một cô kỹ nữ bản xứ làm vợ theo đúng luật, vẫn biết thế cũng chẳng lợi gì cho nước Pháp, nhưng mà cũng đỡ được một mối hại về hoa liễu, đỡ được một người trong đạo binh gái mại dâm. Nếu quá dễ dãi với họ, thì chỉ vài tháng là anh đàn ông bỏ vợ, chị đàn bà lại quay về trụy lạc, nếu không bị chính anh chồng buộc mình phải mại dâm để nuôi thêm anh đĩ đực (gigolo) nữa.
 
 ---
 
 Sau khi cáo biệt ông Chánh Joyeux, tôi sang với ông phó là ông Nguyễn Huy Quỳnh. Tôi đem cái việc cô ả đã trốn nhà lục xì năm năm rồi lại bị bắt, giữa lúc trong mình có trên ba trăm bạc[^133] nữa. Sự này cũng đủ tỏ cái thanh liêm của người đội con gái ấy, vì khi ta có trong tay ba trăm đồng thì thiếu gì lương tâm cho ta mua! Ông Nguyễn Huy Quỳnh bảo tôi:
 
-- Bắt được nhiều ả trong mình có rất nhiều tiền là sự rất thường. Những khi ấy, ông thanh tra Mas thường cứ phải phân bua cái số tiền với nhân viên nhà lục xì trước mặt cô ả bị bắt năm lần bảy lượt rất cẩn thận, vì ông ta sợ mang tiếng lắm, thận trọng lắm.
+-- Bắt được nhiều ả trong mình có rất nhiều tiền là sự rất thường. Những khi ấy, ông thanh tra Mas thường cứ phải phân bua cái số tiền với nhân viên nhà lục xì trước mặt cô ả bị bắt năm lần bảy lượt rất cẩn thận, vì ông ta sợ mang tiếng lắm, thận trọng lắm.
 
-- Thưa ngài, thế người đàn bà ấy ra sao?
+-- Thưa ngài, thế người đàn bà ấy ra sao?
 
-- Lại phải cầm giấy.
+-- Lại phải cầm giấy.
 
-- Lại phải cầm giấy khi trong tay đã có hơn ba trăm bạc? - Tôi kinh ngạc hỏi thế.
+-- Lại phải cầm giấy khi trong tay đã có hơn ba trăm bạc? - Tôi kinh ngạc hỏi thế.
 
-- Chứ gì? Biết đâu đó chẳng là tiền kiếm được vì mại dâm lậu thuế! Ông tưởng hễ có tiền là người ta thôi được cái thói giăng hoa, thôi được cái máu... làm tiền?
+-- Chứ gì? Biết đâu đó chẳng là tiền kiếm được vì mại dâm lậu thuế! Ông tưởng hễ có tiền là người ta thôi được cái thói giăng hoa, thôi được cái máu... làm tiền?
 
-- Thế người đàn bà ấy nếu quả thực đã lấy chồng?
+-- Thế người đàn bà ấy nếu quả thực đã lấy chồng?
 
-- Nếu đúng như lời khai, ắt rồi người chồng sẽ phải đến nhận.
+-- Nếu đúng như lời khai, ắt rồi người chồng sẽ phải đến nhận.
 
-- Bằng không?
+-- Bằng không?
 
-- Thì lại ở nhà thanh lâu, hay là cầm giấy riêng, cái đó được tự do!
+-- Thì lại ở nhà thanh lâu, hay là cầm giấy riêng, cái đó được tự do!
 
-- Nếu vậy, khi đã cầm giấy, thì khó lòng thoát khỏi bể trầm luân?
+-- Nếu vậy, khi đã cầm giấy, thì khó lòng thoát khỏi bể trầm luân?
 
-- Nếu không được bố mẹ hoặc họ hàng đến nhận.
+-- Nếu không được bố mẹ hoặc họ hàng đến nhận.
 
 Tôi đã ngậm ngùi cho những cô Kiều đời bây giờ, và phải nghĩ đến câu "tiền oan nghiệp chướng", đến câu "quả báo luân hồi", để khỏi phải "khéo nước mắt"...
 
@@ -1864,7 +1864,7 @@ Căn cứ vào sự bình đẳng của đàn ông và đàn bà, chủ nghĩa t
 
 Vì bác sĩ Joyeux đã nói như thế này:
 
-- "Đối với người nào muốn nói để lòe đời mà thôi, thì đó là một cách giải quyết vấn đề mại dâm rất nhã nhặn cho một nước, vì thực hành chính sách ấy thì một nước đâu phải đi đến một trình độ khá cao về tiến hóa và tổ chức, mà những nước đã theo chính sách ấy hiện giờ cũng chưa đi đến được một cách đích đáng và cho đủ đường; thực hành lý tưởng ấy nghĩa là cam đoan rằng nước mình không có nạn nghèo đói; rằng sổ Hộ tịch theo cái mực lên xuống hàng ngày, đã ghi chép được cả một cách chu đáo; rằng sổ sách, giấy má nhà nước là rất cẩn thận về cả mọi điều lặt vặt; rằng cái trình độ trí thức đã là phổ thông, người dân hiểu công quyền và thuộc pháp luật một cách tự đắc; rằng ngạch y tế có đủ bệnh viện, người làm, và thuốc men, một cách thừa thãi... Tóm lại, đó là tuyên ngôn rằng nước mình đã giàu mạnh, đã cực kỳ văn minh. Tôi tưởng rằng Đông Dương chưa đến trình độ ấy.
+-- "Đối với người nào muốn nói để lòe đời mà thôi, thì đó là một cách giải quyết vấn đề mại dâm rất nhã nhặn cho một nước, vì thực hành chính sách ấy thì một nước đâu phải đi đến một trình độ khá cao về tiến hóa và tổ chức, mà những nước đã theo chính sách ấy hiện giờ cũng chưa đi đến được một cách đích đáng và cho đủ đường; thực hành lý tưởng ấy nghĩa là cam đoan rằng nước mình không có nạn nghèo đói; rằng sổ Hộ tịch theo cái mực lên xuống hàng ngày, đã ghi chép được cả một cách chu đáo; rằng sổ sách, giấy má nhà nước là rất cẩn thận về cả mọi điều lặt vặt; rằng cái trình độ trí thức đã là phổ thông, người dân hiểu công quyền và thuộc pháp luật một cách tự đắc; rằng ngạch y tế có đủ bệnh viện, người làm, và thuốc men, một cách thừa thãi... Tóm lại, đó là tuyên ngôn rằng nước mình đã giàu mạnh, đã cực kỳ văn minh. Tôi tưởng rằng Đông Dương chưa đến trình độ ấy.
 
 Muốn làm cho khôn khéo, và cho thành thực có kết quả, thì phải theo một chính sách nhũn nhặn hơn. Sở dĩ phải châm chước đi, ấy là vì đại đa số phụ nữ ở xứ này chênh lệch nhau quá, kể về từng khu vực riêng theo những hoàn cảnh thủy thổ, chính trị, cai trị và xã hội riêng; chỉ có một ít người trí thức là đã hoàn toàn Âu hóa, còn thì vẫn có những bộ lạc còn man di mọi rợ như người cổ xưa. Cái dân chúng ở thôn quê sản xuất ra vô số đàn bà mại dâm, thì vẫn còn vô học. Nếu có ít nhiều phụ nữ ở những nơi thành thị đã văn minh tiến bộ, thì đối lại, chín mươi chín phần trăm những đàn bà khác, hãy còn hèn kém đủ đường, nếu đem so với đàn ông. Đẻ con cái, nói ngay ở Hà Nội, mà cũng nhiều khi người ta quên khai sinh. Ngoài những công việc hàng ngày chỉ có vất vả và thụ động, đàn bà ở đây thường là ngu dốt đến bậc cũng không biết ở chung quanh mình có xảy ra những chuyện gì nữa. Sự túng kiết chung xoay quanh được với cái thả lỏng của luân thường đạo lý, với cái đức coi thường sự nam nữ giao cấu, với cái tính cẩu thả, thản nhiên.
 
